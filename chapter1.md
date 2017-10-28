@@ -18,7 +18,7 @@ un truc qui me fait kiffer: conversational UI
 
 pas un truc intelligent, juste un bot qui essaie de faire sens de ce qu'on lui demande mais qui surtout est explicite sur ce qu'il fait / comment l'actionner =&gt;
 
- mélanger UI et texte en particulier.
+mélanger UI et texte en particulier.
 
 UX / design = lumière blanche qui se décompose progressivement, lentement en couleurs réorganisées harmonisement. Silence qui se décompose en fréquences pour donner une musique. Le silence de l'homme, son état de base c'est ce plein silencieux, ou un vide plutôt ? en tout cas capable d'insuffler une énergie pour se recomposer soi-même \(dans un mouvement de découverte plutôt que d'invention\)
 
@@ -83,6 +83,34 @@ Les forces qui m'animent:
 * Difference celebrating inclusiveness
 * Idealist While forgetfulness and acceptance of human nature
 * Thought provoking fun: highlight crap, envision exciting opportunities
+
+"Ahah" moments: souvent des visions idéales / enthousiasmantes qu'on avait perdu de vue et qu'on retrouve parce qu'on est bousculé de l'extérieur =&gt; la routine nous fait oublier qu'il y a des raisons \(souvent\) pour lesquelles on fait ce qu'on fait. Mais des fois on s'égare parce qu'on ne sait plus exactement ce qui nous fait kiffer.
+
+Ca pose problème quand on veut repenser son design / sa marque / sa vision.
+
+Comment faire ? Déterrer cette vision uber cool qui nous a motivé au départ
+
+C'est plus simple de partir dans le sens inverse: qu'est-ce qu'on trouve pourri / naze / chiant ?
+
+et pour se simplifier la vie, faire ce travail d'abord sur des thèmes éloignés:
+
+- qu'est ce qui pue dans une banque ?
+
+- qu'est-ce qui est chiant dans les bars ?
+
+...
+
+pour en venir à des thématiques proches des notres.
+
+
+
+ce que j'aime dans le journalisme, la photo ou le dessin humoristique:
+
+- visualiser pour se projeter, empatire, avoir un feedback, combattre l'injustice:
+
+les déchets c'est quoi ? montrer ce qu'on brûle de déchets
+
+manger de la viande ? montrer la chaîne de production
 
 
 
