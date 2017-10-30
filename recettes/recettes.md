@@ -7,6 +7,8 @@ dans les aliments de base cool:
 carottes, petits pois, h. olive, beurre, oeufs, sarrasin
 
 racheter de la sauce soja. boire un peu de vin ? concentré de tomates.
+Racheter de l'huile de lin !
+Spiruline: où acheter ?
 
 ## Mental
 

@@ -1,4 +1,3 @@
-# My Awesome Book
+# Mon bouquin pas si dingue
 
-This file file serves as your book's preface, a great place to describe your book's content and ideas.
-
+La conclusion ce sera pour la fin ! Enfin pour la première version du **30 Novembre** <excitation>

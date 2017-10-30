@@ -1,7 +1,9 @@
 # Summary
 
-* [Introduction](README.md)
-* [Design](chapter1.md)
-* [Listes de le passé](listes.md)
-* [Recettes](recettes.md)
-
+* [You are here](README.md)
+* [Design](design/README.md)
+    * [Pouah à trier](design/chapter1.md)
+* [Recettes](recettes/README.md)
+    * [Manger](recettes/recettes.md)
+* [Listes !](listes/README.md)
+    * [Le grenier](listes/bookmark.md)
