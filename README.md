@@ -1,6 +1,4 @@
-# Mon bouquin pas si dingue
+# Vous êtes ici
 
-La conclusion ce sera pour la fin ! Enfin pour la première version du **30 Novembre** 
-
-
+Je me parle à moi même, sers-toi et prends ce qui est bon pour toi.
 

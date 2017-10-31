@@ -1,5 +1,3 @@
-# Design
-
 ## L'aspect spirituel du design
 
 ### Kiff du problème, kiff de la solution
@@ -20,7 +18,16 @@ Y'a par contre des éléments qui reviennent souvent:
 - Quand on s'est éfforcé de remettre à plat l'énoncé même du problème:
   - parfois il n'y en a plus (la contradiction n'était que le fruit du langage) 
   - parfois ce n'est finalement pas la bonne question qui est posée
-  - parfois des hypothèses que l'on a pas envisagé de questionner doivent l'être. Ex lié au végétarisme: d'où vient le fait que l'on ne mange pas de chair humaine ?  
+  - parfois des hypothèses que l'on a pas envisagé de questionner doivent l'être. Ex lié au végétarisme: d'où vient le fait que l'on ne mange pas de chair humaine ?
+- `Ahah !` moments ! (*)  
+
+(\*) Définition de moi du `Ahah !` moment:
+
+> Ces moments où l'on perçoit tout à coup de façon saisissante des idées / visions kiffantes. Ces dernières ont la particularité qu'on les a soit:
+- **1)** perdues de vue,  soit 
+- **2)** jamais réussi à expliciter clairement (tout en les sentant affleurer à la conscience)
+
+> Mystère de pourquoi ça arrive ? Il semble qu'on a été bousculé par soi-même, les autres ou le hasard dans sa routine de pensée ou d'action ...
 
 
 ### Un lien avec la médiation
@@ -36,13 +43,13 @@ Comme dans la vie spirituelle il m'apparaît de plus en plus que:
 - **Pour identifier la merde**, il faut faire un effort de conscientisation important
 - **Pour y répondre intelligemment**, il faut laisser s'épanouir le corps et écouter comment il répond au défi posé
 
-
 `IDEE BIZ`
 ```
 BREAKSTORMING! Démonter des appareils, des idées, aller au bout de la crasse !
 Pourquoi ce qui existe est chiant? Pourquoi les premières idées qui me viennent 
 sont nazes aussi ?
 ```
+note: idée à vendre (merci de me verser une rente) et un peu développée plus bas
 
 ## Motivations (plus concrètes)
 
@@ -78,10 +85,13 @@ problème de friction / fragmentation du mental je pense !
 ```
 Pas de solutions sans problèmes. Et on adore trouver des solutions ❤❤❤. Trouvons des bons problèmes !
 
-### Extra: ecstasies
+### Extra: ecstasies forms
 
 - Expand my own form of existence into this "world"
+- Get to experience an aspect of life that is a mystery to me 
 - etc ...
+
+Overlaps with section on pleasure !
 
 ## The mighty guidelines
 
@@ -123,93 +133,65 @@ dans la musique électronique, y'a pas un désir de partir d'un truc abouti, de 
 
 Design by connecting dots / design in the void. J'aurais du mal à être un "vrai" designer \(qqun qui peut faire un site, des assiettes, une chaise, etc ...\) parce que je repart du néant à chaque. J'ai du mal à réutiliser un langage existant de ce point de vue là.
 
-## Je pose ça là
+### Shitstorm / Breakstorm
+
+Ca pose problème quand on veut repenser son design / sa marque / sa vision.
+Comment faire ? Déterrer cette vision uber cool qui nous a motivé au départ
+C'est plus simple de partir dans le sens inverse: qu'est-ce qu'on trouve pourri / naze / chiant ?
+
+et pour se simplifier la vie, faire ce travail d'abord sur des thèmes éloignés:
+- qu'est ce qui pue dans une banque ?
+- qu'est-ce qui est chiant dans les bars ?
+- etc ...
+
+pour en venir à des thématiques proches des notres.
+
+### Inspiring oxymorons
+
+> Inclusiveness that celebrates and fosters difference
+
+Cause difference is fun (once you've accepted you're separated from others but inherently the same)
+
+> Open and honest recognition of **human nature dark aspects and incompleteness**. It is not incompatible with the **pursuit of awesome / apparently un-realistic ideals** !
+
+Actually it is even a pre-requisite: how the hell do you want to tackle an issue you do not face ?
+
+> **Thought provoking fun** ! 
+
+Having fun makes it easy to get seriously excited ("An app where your mother creates your profile" as a starting point for the sad state of relationships these days)
 
 ### Maximes
 
 Phrases, réflexions de moi ou d'autres (notamment [https://medium.com/@hemeon/70ish-life-and-business-lessons-for-designers-9d8c5b9e3476](https://medium.com/@hemeon/70ish-life-and-business-lessons-for-designers-9d8c5b9e3476))
 
 - If you’re a really good creative, you're inclusive. Inclusivity tends to drive your creativity
+- Use patterns, guides, inspirations
+- un gros marqueur à la main \(pour éviter les détails\), un tweet toujours prết à envoyer =&gt;
+
+## Je pose ça là
+
+C'est de pire en pire cette organisation 
 
 ### Trucs qui me désintéressent pas
 
 Un truc qui pourrait m'intéresser: design de lignes de commande pour humain.
-
-
-
-
-## A trier
-
-=&gt;**Create life VS preserve it.**  
-Use patterns, guides, inspirations
-
 un truc qui me fait kiffer: conversational UI
-
 pas un truc intelligent, juste un bot qui essaie de faire sens de ce qu'on lui demande mais qui surtout est explicite sur ce qu'il fait / comment l'actionner =&gt;
-
 mélanger UI et texte en particulier.
 
+### Doodling !
 
+Pour mettre ses idées en place !
+Achète le bouquin avant d'en parler déjà !
 
-
-
-
-
-un gros marqueur à la main \(pour éviter les détails\), un tweet toujours prết à envoyer =&gt; j'ai une compulsion à desssiner, écrire qu'il faut étancher pour qu'elle me soit profitable
-
-importance de l'inspiration:  
- faire un conversational bot avec ? ou plutot comment présenter ça d'une manière qui ne soit pas chiante ?
-
-
-
-
-Si je veux vraiment faire un chatbot pour faire vivre les idées que j'ai, il faut pas que j'oublie que ce je kiffe c'est les systèmes explicites, qui communiquent en étant ouvert sur leurs défauts de comm, en laissant regarder à travers l'embrasure de la porte voir ce qu'il y a derrière  
-=&gt; "This thing made me feel like that" =&gt; faire un journal je me sentais X, j'avais besoin de Y et CA m'a apporté une réponse. Ou alors j'ai vu ça et ça m'a fait sentir ça. Pour l'apprentissage on verra plus tard. déjà collecter des données et voir si intéressantes  
-sur le modèle de loglumbo :D =&gt; logger des "CA m'a fait pensé à ça avec telle émotion"  
-=&gt; ça s'appelle Twitter !!!
-
-mockups with python scripts and ascii art
-
-ce qui me tient à coeur:
-
-* l'inclusion
-* la folie exploratoire
-
-J'arrête pas d'essayer voir comment je peux utiliser mes compétences techniques pour innover / faire un truc fun. Mais en fait je me rends compte qu'en l'état nos technologies nous permettent déjà de faire un nombre invraisemblable de choses, que la moindre idée est vite exploitée \(à partir du moment où elle a un potentiel de rentabilité\). Mais tant qu'il y a de la vie humaine, la vraie question, le vrai enjeu c'et d'abord d'être bien avec soi-même et ça une débauche de techno n'a aucune raison d'apporter une réponse \(à part être dans le flow en tant qu'acteur. Mais dés que nos automates nous dépossèdent de notre statut, c'est retour à la case départ.\)
-
-Les forces qui m'animent:
-
-* Difference celebrating inclusiveness
-* Idealist While forgetfulness and acceptance of human nature
-* Thought provoking fun: highlight crap, envision exciting opportunities
-
-"Ahah" moments: souvent des visions idéales / enthousiasmantes qu'on avait perdu de vue et qu'on retrouve parce qu'on est bousculé de l'extérieur =&gt; la routine nous fait oublier qu'il y a des raisons \(souvent\) pour lesquelles on fait ce qu'on fait. Mais des fois on s'égare parce qu'on ne sait plus exactement ce qui nous fait kiffer.
-
-Ca pose problème quand on veut repenser son design / sa marque / sa vision.
-
-Comment faire ? Déterrer cette vision uber cool qui nous a motivé au départ
-
-C'est plus simple de partir dans le sens inverse: qu'est-ce qu'on trouve pourri / naze / chiant ?
-
-et pour se simplifier la vie, faire ce travail d'abord sur des thèmes éloignés:
-
-- qu'est ce qui pue dans une banque ?
-
-- qu'est-ce qui est chiant dans les bars ?
-
-...
-
-pour en venir à des thématiques proches des notres.
-
-
+### Voir pour agir
 
 ce que j'aime dans le journalisme, la photo ou le dessin humoristique:
-
 - visualiser pour se projeter, empatire, avoir un feedback, combattre l'injustice:
+- les déchets c'est quoi ? montrer ce qu'on brûle de déchets
+- manger de la viande ? montrer la chaîne de production
 
-les déchets c'est quoi ? montrer ce qu'on brûle de déchets
 
-manger de la viande ? montrer la chaîne de production
 
 
 
