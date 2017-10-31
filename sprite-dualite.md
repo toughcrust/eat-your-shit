@@ -260,6 +260,8 @@ Ce qui parle plus à mon instinct: la force de la méditation, de la sagesse, c'
 
 **Est-ce que j'ai envie d'être heureux ou même juste avoir du plaisir ?**
 
+indice: je veux des choses à surmonter excitantes
+
 
 
 
