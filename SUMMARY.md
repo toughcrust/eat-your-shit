@@ -6,6 +6,7 @@
   * [Pouah à trier](design/chapter1.md)
 * [Recettes](recettes/README.md)
   * [Manger](recettes/recettes.md)
+  * [Psycho](recettes/psycho.md)
 * [Listes !](listes/README.md)
   * [Le grenier](listes/bookmark.md)
 

@@ -1,5 +1,21 @@
 # Design
 
+## L'aspect spirituel du design
+
+Je kiffe sa mère trouver des problèmes où les aspirations s'entrechoquent, les décrire, expliciter les attentes cachées.
+Je sur-kiffe trouver une des solutions dans l'énoncé même du problème une fois remis à plat.
+Naturellement on a tendance à vouloir trouver des solutions tout de suite. Mais en fait c'est assez jouissif de ne pas le faire.  
+=> décrire les problèmes en se retenant d'apporter une solution => décrire, encore et encore, prendre sa respiration se calmer et attendre que les interrogations soint suffisamment simples pour que "la réponse" (ou en tout cas une nouvelle réponse cool) coule de source pour n'importe qui.
+On ne maîtrise pas le fait de trouver des solutions, ça vient tout seul, naturellement. C'est comme si il fallait faire taire sa conscience pour laisser notre intelligence s'exprimer. alors que dans l'analyse du bullshit, des problèmes, la pleine conscience à un rôle essentiel à jouer je pense.
+
+* design: décrire des problèmes encore et encore, sentir ou ça coince ce qui est naze. Ne pas se soucier de solutions, elles viendront. Les accueillir mais savoir les ranger et attendre les suivantes, ne pas s'y attacher. Plus encore savoir vraiment écouter les autres. Voir s'autoriser à ne pas chercher de solution \(dur parce que l'esprit humain est une machine à optimiser\)
+* idée boulot: atelier de breakstorming: regarder démonter les choses pour identifier plein de problèmes. faire des immersions dans les boîtes pour voir ce qui ne va pas.
+* spiritualité: l'éveil de conscience me parait de plus en plus lié avec le fait d'identifier la merde, de sentir ce qui n'est pas bon
+
+
+
+## A trier
+
 Design for highs design for ecstasy design to last design to leave no shit design to preserve design to evolve.
 
 Design for the brain disabled: my experience of being trapped in brain fog has left me with the feeling I should enjoy my life even when it's not enjoyable

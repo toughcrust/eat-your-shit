@@ -1,11 +1,3 @@
-Trouver des problèmes les décrire expliciter les attentes les enjeux c'est ce que je kiff. Naturellement on a tendance à vouloir trouver des solutions tout de suite. Mais en fait c'est assez jouissif de ne pas le faire.  
-=> décrire les problèmes en se retenant d'apporter une solution => décrire, encore et encore, prendre sa respiration se calmer et attendre que les interrogations soint suffisamment simples pour que "la réponse" (ou en tout cas une nouvelle réponse cool) coule de source pour n'importe qui.
-On ne maîtrise pas le fait de trouver des solutions, ça vient tout seul, naturellement. C'est comme si il fallait faire taire sa conscience pour laisser notre intelligence s'exprimer. alors que dans l'analyse du bullshit, des problèmes, la pleine conscience à un rôle essentiel à jouer je pense.
-
-* design: décrire des problèmes encore et encore, sentir ou ça coince ce qui est naze. Ne pas se soucier de solutions, elles viendront. Les accueillir mais savoir les ranger et attendre les suivantes, ne pas s'y attacher. Plus encore savoir vraiment écouter les autres. Voir s'autoriser à ne pas chercher de solution \(dur parce que l'esprit humain est une machine à optimiser\)
-* idée boulot: atelier de breakstorming: regarder démonter les choses pour identifier plein de problèmes. faire des immersions dans les boîtes pour voir ce qui ne va pas.
-* spiritualité: l'éveil de conscience me parait de plus en plus lié avec le fait d'identifier la merde, de sentir ce qui n'est pas bon
-
 # My very own indie sprirituality
 
 En lien avec la spriritualité, vivre une vie, se projeter. Oui mais comment ? voir [\#15](https://github.com/toughcrust/toughcrust.github.io/issues/15) \(parce qu'examiner la vie n'est pas aussi important que la vivre\)
