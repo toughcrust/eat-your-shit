@@ -2,22 +2,16 @@
 
 En lien avec la spriritualité, vivre une vie, se projeter. Oui mais comment ? voir [\#15](https://github.com/toughcrust/toughcrust.github.io/issues/15) \(parce qu'examiner la vie n'est pas aussi important que la vivre\)
 
-Life-changing ideas
-
--------------------
+## Les pairs fondateurs
 
 
+> Consciousness is simply the light by which the contours of mind and body are known [...] Making this discovery, again and again, is the basis of spiritual life.
 
-&gt; Consciousness is simply the light by which the contours of mind and body are known \[...\] Making this discovery, again and again, is the basis of spiritual life.
+_Sam Harris_
 
-\`Sam Harris\`
+> Meditation is the understanding of the totality of life in which every form of fragmentation has ceased.
 
-
-
-&gt; meditation is the understanding of the totality of life in which every form of fragmentation has ceased
-
-\`Krishnamuti\`
-
+_Krishnamuti_
 
 
 What's fondamentally "broken" in human experience: we are not our bodies, we happen to have some knowledge about it as it pops into our consciousness. But SOOOO much happens without us noticing, even to the extent of not noticing a split brain !
