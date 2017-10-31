@@ -4,7 +4,7 @@
 
 ### Kiff du problème, kiff de la solution
 
-Je kiffe trouver des problèmes où **de belles aspirations se catapultent**. Exemple:
+Je kiffe trouver des problèmes existentiels où **de belles aspirations se catapultent**. Exemple:
 - Se taper un bon gros barbeq' bien juicy (oui oui très belle aspiration)
 - Manger au top (sachant que j'ai la croyance que la graisse animale est excellente)
 - Ne pas élever et tuer des animaux pour leur chair
@@ -36,29 +36,54 @@ Comme dans la vie spirituelle il m'apparaît de plus en plus que:
 - **Pour identifier la merde**, il faut faire un effort de conscientisation important
 - **Pour y répondre intelligemment**, il faut laisser s'épanouir le corps et écouter comment il répond au défi posé
 
-IDEE BIZ
+
+`IDEE BIZ`
 ```
-BREAKSTORMING: Démonter des appareils, des idées, aller au bout de la crasse !
+BREAKSTORMING! Démonter des appareils, des idées, aller au bout de la crasse !
 Pourquoi ce qui existe est chiant? Pourquoi les premières idées qui me viennent 
 sont nazes aussi ?
 ```
 
+## Motivations (plus concrètes)
 
+Parce que je ne suis pas qu'un dieu !
+
+### Ce que je cherche
+
+Liste non exhaustive et même pas tant pertinente:
+- For frickin' ecstasy !
+- To prepare for when I'm weak (trapped in brain fog, rings a bell ?)
+- To fix annoying shit
+- Expand my own form of existence into this "world"
+- etc ...
    
+### Et comment ?
+
+A tale of two attitudes:
+
+`Dis shit is dope man, I want it badly`
+🡆 I am involved, I focus like hell, I put extra energy and it actually energizes me  
+
+`Wow such boring. And not my problem` 
+🡆 I do it for the money / because it must be done. I'll try to do something so boring, so functional, no one will ever bother me with that again. Here for the check and the satisfaction not to have screwed.
+
+`NOTE META`
+```
+Là aussi comme dans la psycho (== partie "se définir avec des oxymores"), ça paraît
+difficile de faire un entre deux de ces deux attitudes. 
+Les deux ont leur pertinence mais elles sont gravement incompatibles !
+Pas l'objet de cette partie (plus hygiène mentale), mais l'entre deux est un sérieux
+problème de friction / fragmentation du mental je pense !
+```
+
+## The mighty rules
+
+**L.O.L**, je serai incapable de créer un ensemble de règles de design parce qu'on fond j'y connais pas grand chose et en plus je "refactor" en permanence, y compris ma façon de "refactorer" (trouver le bon François pour ce mot). Mais bref, si je fais pas cette section je ferais jamais ce putain de bouquin (**cf partie "se vider les cools"**).
 
 
 ## A trier
 
-Design for highs design for ecstasy design to last design to leave no shit design to preserve design to evolve.
 
-Design for the brain disabled: my experience of being trapped in brain fog has left me with the feeling I should enjoy my life even when it's not enjoyable
-
-UX / design / work:  
-A tale of two attitudes
-
-* Fixing the broken heart =&gt;
-   involved, focus, extra energy, i want it to be live and use it
-* Do for the money / because it must be done. Issue is boring or even not a real one in your eyes. Do something so boring, so functional, no one will ever bother with you again. Just works and you get your pay.
 
 =&gt;**Create life VS preserve it.**  
 Use patterns, guides, inspirations
