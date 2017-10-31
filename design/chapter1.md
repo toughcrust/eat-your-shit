@@ -2,16 +2,49 @@
 
 ## L'aspect spirituel du design
 
-Je kiffe sa mère trouver des problèmes où les aspirations s'entrechoquent, les décrire, expliciter les attentes cachées.
-Je sur-kiffe trouver une des solutions dans l'énoncé même du problème une fois remis à plat.
-Naturellement on a tendance à vouloir trouver des solutions tout de suite. Mais en fait c'est assez jouissif de ne pas le faire.  
-=> décrire les problèmes en se retenant d'apporter une solution => décrire, encore et encore, prendre sa respiration se calmer et attendre que les interrogations soint suffisamment simples pour que "la réponse" (ou en tout cas une nouvelle réponse cool) coule de source pour n'importe qui.
-On ne maîtrise pas le fait de trouver des solutions, ça vient tout seul, naturellement. C'est comme si il fallait faire taire sa conscience pour laisser notre intelligence s'exprimer. alors que dans l'analyse du bullshit, des problèmes, la pleine conscience à un rôle essentiel à jouer je pense.
+### Kiff du problème, kiff de la solution
 
-* design: décrire des problèmes encore et encore, sentir ou ça coince ce qui est naze. Ne pas se soucier de solutions, elles viendront. Les accueillir mais savoir les ranger et attendre les suivantes, ne pas s'y attacher. Plus encore savoir vraiment écouter les autres. Voir s'autoriser à ne pas chercher de solution \(dur parce que l'esprit humain est une machine à optimiser\)
-* idée boulot: atelier de breakstorming: regarder démonter les choses pour identifier plein de problèmes. faire des immersions dans les boîtes pour voir ce qui ne va pas.
-* spiritualité: l'éveil de conscience me parait de plus en plus lié avec le fait d'identifier la merde, de sentir ce qui n'est pas bon
+Je kiffe trouver des problèmes où **de belles aspirations se catapultent**. Exemple:
+- Se taper un bon gros barbeq' bien juicy (oui oui très belle aspiration)
+- Manger au top (sachant que j'ai la croyance que la graisse animale est excellente)
+- Ne pas élever et tuer des animaux pour leur chair
 
+Je sur-kiffe trouver une / des "solutions".
+Sachant que:
+- j'y réfléchis énormément à chaque fois (je cherche le défi)
+- puisque qu'on parle de spritualité (aka remise en question de ce qu'on tient pour fondamental)
+
+y'a **par définition pas de recette**!
+
+Y'a par contre des éléments qui reviennent souvent:
+- Quand on s'est éfforcé de remettre à plat l'énoncé même du problème:
+  - parfois il n'y en a plus (la contradiction n'était que le fruit du langage) 
+  - parfois ce n'est finalement pas la bonne question qui est posée
+  - parfois des hypothèses que l'on a pas envisagé de questionner doivent l'être. Ex lié au végétarisme: d'où vient le fait que l'on ne mange pas de chair humaine ?  
+
+
+### Un lien avec la médiation
+
+Ci dessous, description d'un exercice de médiation ou de résolution de problème ?
+```
+Décrire les problèmes en se retenant d'apporter une solution
+Mettre de côté le mental qui s'enflamme pour apporter des réponses
+Décrire, encore et encore, en respirant calmement et profondément
+Se relaxer, se détacher de son corps pour laisser libre cours à son intelligence
+```
+Comme dans la vie spirituelle il m'apparaît de plus en plus que:
+- **Pour identifier la merde**, il faut faire un effort de conscientisation important
+- **Pour y répondre intelligemment**, il faut laisser s'épanouir le corps et écouter comment il répond au défi posé
+
+IDEE BIZ
+```
+BREAKSTORMING: Démonter des appareils, des idées, aller au bout de la crasse !
+Pourquoi ce qui existe est chiant? Pourquoi les premières idées qui me viennent 
+sont nazes aussi ?
+```
+
+
+   
 
 
 ## A trier
