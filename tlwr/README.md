@@ -1,6 +1,32 @@
 # TL; Won't Read
 
-En fait c'est pas des résumés plutôt des notes introductives. Mais bon auto-suffisantes qui contiennent pas mal d'éléments développés après. Donc tu trouves ça chiant dés ici => ce sera chiant aussi plus loin.
+En fait c'est pas des résumés plutôt des notes introductives de motivation. Mais bon auto-suffisantes qui contiennent pas mal d'éléments développés après. Donc tu trouves ça chiant dés ici => ce sera chiant aussi plus loin.
+
+## It all starts with depression
+
+What you know should give up pleasure does not.
+Then you start to think a lot more about getting more of what you actually have.
+Even more because you don't want to waste what is still precious in your eyes.
+So you start to dig topics healthy people don't pay much attention to: food, sleep, communication, etc ...
+
+More on that as a problem later:
+- when people tell you overthinking makes you depressed
+- but they don't understand overthinking IS the coping mechanism to depression
+- but they might not be totally wrong and you have to know when to stop
+
+## Strippin' bloggers
+
+Not talking about half naked micro bloggers.
+
+pour ce qui est d'écouter ce que des gens en apparences loufoques ont à dire:
+"I feel you're being honest, I need to have a feeling what you experience but I certainly don't need your mental models that try to make sense of what you experience, at least in a first time."
+
+Your Grandmother Was Right, But She Didn’t Know Why
+This annoying blogger is right, but she is lost in pseudo science
+
+If you take the time to investigate, you WILL know better than anybody else. Only question is: Does it feel like it's worth it ?
+=> just like what we're good at is what we are willing to be criticized about.
+On most things people are content with having knowledge they hold "true": it serves them. Prove dem wrong and then get annoyed.
 
 ## Cut the crap
 

@@ -1,14 +1,24 @@
 # My very own indie sprirituality
 
-En lien avec la spriritualité, vivre une vie, se projeter. Oui mais comment ? voir [\#15](https://github.com/toughcrust/toughcrust.github.io/issues/15) \(parce qu'examiner la vie n'est pas aussi important que la vivre\)
+### De quoi on (je) parle ?
 
-## Les pairs fondateurs
+When you suddenly have thoughts the game designer would have while you're actually planning:
+- Why do we have a compulsion to love and have children
+- Why is there gravity ? Why does the sun burn eyes ?
+- What is that like to be a worm ?
 
+Tu peux alors devenir spectateur de tes propres pensées. Et même t'observer t'observer !
+Il y a là un mouvement, une tension. Donc (en prenant avec des pincettes des choses aussi floues) "être spirituel"
+c'est "rester dans un mouvement de réflexion sur soi-même".
 
+### Les pairs fondateurs
+
+Sur ce qu'est la conscience:
 > Consciousness is simply the light by which the contours of mind and body are known [...] Making this discovery, again and again, is the basis of spiritual life.
 
 _Sam Harris_
 
+Sur la fragmentation, l'opposé d'un "éveil spirituel":
 > Meditation is the understanding of the totality of life in which every form of fragmentation has ceased.
 
 _Krishnamuti_
@@ -251,6 +261,15 @@ indice: je veux des choses à surmonter excitantes
 une difficulté en spiritualité: on veut de l'obstacle, alors doit on accepter se réjouir de celui qu'on a pas choisi ?
 
 
+Le futur existe déjà mais il est multiple. Nous faisons apparaître les chemins que nous invoquons par l'intention / l'observation dans des moments particuliers (ex: pendant les vacances on ressent cette liberté, cette ouverture des possibles).
+Cette vision des choses n'est pas en désaccord avec la physique, n'empêche pas le libre arbitre (le réfuter c'est conditionner sa vie, donc finalement un peu une contradiction), rend bien compte d'une forme de déterminisme, mais ne mine pas le moral. C'est donc un principe assez sain aussi bien au niveau rationnel qu'émotionnel.
 
+vivre autant que possible (=sans nier les obstacles) dans le monde que l'on rêve:
+plus raisonnable et joussif que "vivre dans la joie" => mais même avantage que l'on reste ouvert, présent dans l'instant et que l'on fait quelque chose de sa vie
 
+## La partie sombre en nous
 
+Quelle est cette partie sombre ? auto-destructrice ?
+
+Mon blocage le + important spirituellement: est-ce que je désire vraiment le monde que je désire ?
+permaculture, vie de communauté, écologie, tout ça ... Qu'est-ce que j'en ai à faire vraiment ?

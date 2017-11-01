@@ -298,11 +298,30 @@ mélange: importance de la pop culture, de l'insclusivité, du journalisme d'inv
 
 Je n'ai pris que ce qui m'intéressait dans l'horoscope: ce qui résonne en moi. peut m'importe la scientificité de la démarche / la "vérité", ce qui m'intéresse c'est de faire émerger le plaisir que mon corps / esprit / whatever est désireux de faire émerger / vivre.
 
+
+Un sensualiste: j'observe, j'essaie, j'accueille les sensations. J'ai besoin que ce soit des plaisirs partagés et partageables (gène du luxe). Émotionnellement je suis un humaniste preoccupé par les questions difficiles autour du partage. Jai un désir d'agir dans ce domaine.
+Comment je pense, communique et prends du plaisir: de façon analytique, en recueillant des faits sur les aspirations des gens, en étant en groupe. C'est aussi là où j'ai des difficultés: garder le contact avec les potes.
+
+What part of me gets lightened in which situations ? C'est important pour savoir accueillir les surprises tout en sachant ce qu'on veut, pour trouver ses points communs avec n'importe qui en restant entier. Parce qu'on peut sûrement trouver un sujet, un mode ou niveau d'expression avec lequel on se rencontre vraiment.
+
+Moi je prends plaisir à être au milieu des gens. J'ai pas besoin de parler mais si on s'intéresse à moi alors je deviens bavard et je m'attache rapidement. Les aspirations, la nouveauté qui reconnaît et dépasse les defauts de l'homme c'est ce qui m'excite le plus. Dans mes aspirations profondes jai besoin de fun spirituel
+
+### Et toi tu admires quel type de personnes en général ?
+
+Dur pour moi:
+- J'admire le plus les gens capables d'avouer des choses inavouables (les pédophiles allmnads qui se font soigner)
+- J'en suis difficilement capable moi-même
+
+
 I WANT IT ALL, même la sérénité qui vient quand on s'est convaincus qu'on ne peut pas tout avoir, même le regard apaisé du contemplateur qui n'a pas peur de la perte parce qu'il n'a rien à perdre. La grande gueule, le danger, la la profonde sincérité, l'absence de masque.
 
 Somehow related: what's wrong with willing to be god ? I am wind, earth, emptyness, symbiosis of a multitude and I acknowledge it. Still I dream to be one, to be god. What's wrong with that ?
 
 La beauté de la vie est dans le précieux, le fragile, l'insoupçonné, l'éphémère, le subtile. C'est con de se planter à rêver à quelque chose qui en fait est naze, donc paradoxalement ça vaut le coup d'explorer assez "brutalement" la vie pour savoir ce qui nous fait rêver exactement ou pas. Juste, ne pas détruire (exploration non invasive).
 
+esoterically: I feel like an old soul already quite detached from earthy life. But Scared of what's next,
+scared to be alone with myself. What I need to learn (and teach others by doing so) in to find be confident I can create warmth
+whenever possible however wherever. By being incarnated in a weirdly distant boy (unknowlingly suffocating every fucking awake time)
+I have a taste of a true separation, loneliness that only I can break. Overcome the fear of hearing no voice but mine.
 
 

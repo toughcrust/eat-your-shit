@@ -1,10 +1,13 @@
-# Vous êtes ici
+# Vous êtes ici <emoji poop>
 
-Note de l'auteur:
+Sous-titres envisagés pour ce bouquin:
+- Eléments de branlette intelectuelle
 
-> Je te parle à moi même.
-  Peut-être certains passages résonneront dans ton crâne.
-  Sois libre de te les approprier.
-  Pour ce qui ne te parle pas, chie dessus ?
+Cautionary notes from the author:
 
+> Feel free to take whatever is worth to you and leave the toxic parts
+
+> EMBRACE POOP OR BURN IT WITH FIRE
+
+> I need not fearful guidance but guidance to overcome fear
 

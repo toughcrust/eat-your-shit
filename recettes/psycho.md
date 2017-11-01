@@ -1,1 +1,0 @@
-être curieux quant à ses peurs: qu'est-ce qui me terrifie exactement, que se pass-t-il dans mon corps ? qu'est-ce que ça m'empêche de faire. Retourner la chose: être geek de ses peurs, les prendre comme une richesse à exploiter. 

@@ -1,3 +1,5 @@
+je crois que j'ai besoin de faire un boulot vraiment pépère mais léger, fun, engageant
+
 Inspiré par le code:
 Communication
 - Commenting (expliciting) is great. Self-explanatory is even better (transparent)
@@ -103,3 +105,25 @@ Les nourrir de caca bio ?
 http://www.fao.org/docrep/018/i3253e/i3253e.pdf
 
 "petit data" => réduire la quantité de données à traiter, se recentrer sur l'essentiel
+
+Idée Biz
+"We don't need each other"
+I won't help you till you don't find a good problem to solve
+=> I won't work for free if it's annoying
+=> I'll pay you if you give me thrilling work
+
+Dans les obsessions, certaines ne sont pas bonnes dans le cadre du boulot.
+rata et son obsession d'être chef. De reconstruire le monde.
+Moi et mon obsession de faire simple. MOn obsession de bosser dans l'info alors que la tech me désintéresse ...
+=> il faut trouver qqun qque chose qui s'opposent à nos obsessions
+
+J'aime générer des idées sur les projets des autres et j'aime que ce soit mon boulot. Moi si je suis pas convaincu qu'un projet va changer la face du monde, je serais pas motiver pour le porter seul. D'ailleurs c'est même pas sûr que s'il change la face du mond je serais motivé pour autant
+
+https://www.lutopik.com/article/les-toilettes-seches-sortent-du-trou
+
+trucs pros qui m'intéressent:
+internet de la forêt
+végétaliser la ville
+pas de déchets
+utiliser caca et urines des gens
+=> bref des systèmes naturels ou assimilés qui assurent une profusion à la fois basique (c'est des besoins essentiels) et des luxes si on y fait pas gaffe
