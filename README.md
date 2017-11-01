@@ -7,6 +7,4 @@ Note de l'auteur:
   Sois libre de te les approprier.
   Pour ce qui ne te parle pas, chie dessus ?
 
-Dialogue d'intro sur les questions existentielles: reprendre et améliorer https://github.com/toughcrust/toughcrust.github.io/issues/1.
-
 

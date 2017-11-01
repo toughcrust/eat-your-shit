@@ -1,6 +1,7 @@
 # Summary
 
 * [You are here](README.md)
+* [TL; Won't Read](tldr-cut-the-crap.md)
 * [Sprite \|\| dualité](sprite-dualite.md)
 * [Design](design/README.md)
   * [Lien avec la spiritualité](design/lien-avec-la-spiritualite.md)
