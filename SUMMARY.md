@@ -13,4 +13,5 @@
 * [Listes !](listes/README.md)
   * [Le grenier](listes/bookmark.md)
 * [Labeur !](labeur.md)
+* [Va, vis, deviens !](va-vis-deviens.md)
 
