@@ -23,3 +23,63 @@ design / UX: can work only if you're dedicated to use it (in the same way that t
 => Talk about managing developers obsessions (factory boy, one liner, mr clean, etc ...) we've got a common one "how could I talk a computer into doing that" => make your obsessions a super power, not a weakness by recognizing it and where / when to express it.
 
 One and only one complexity at a time => le reste est bien cadré (docs, tests, management) mais on a un espace de créativité, un défouloir où on est responsable.
+
+**Mes particularités:**
+- Je suis dans la fermentation / décantation, l'observation, le retournement / détournement
+- J'aime écrire, décrire, éclairicir pour mettre à jour les liens profonds entre les choses / personnes, lever des lièvres
+- Aider les autre à trouver ce qui leur plaît
+
+**Trouver un boulot en fonction de ce qui ne fait pas chier**:
+la question n'est pas tellement de savoir là où on est bon, mais là où on a envie d'être critiqué pour devenir meilleur.
+A contrario, c'est super libérateur de dire quand on quelque chose nous fait chier. Encore mieux si on peut échanger avec quelqu'un d'autre.
+Différence entre:
+- bon boulot: c'est comme avoir quelque chose que les autres aiment / désirent
+- très bon boulot: avoir ce qu'on aime / désire au delà de toute influence 
+
+Je crois qu'on peut lier tous les projets de vie à une ou des pulsions de vie / créatrices (donner la vie, la supporter, se sacrifier pour elle, la phagocyter). 
+Dans ce contexte, LE truc qui me manque avec le développement c'est que je ne trouve pas qu'un système d'information ou ce qu'on en fait soit une belle forme de vie.
+
+Choses que je kiffe:
+- journalisme / investigation sur des trucs quotidiens / proches mais inédits. Mélange de sérieux / sujets légers (en apparence !). (ex VICE). 
+- Hack politique / vie quotidienne / business: trouver des alternatives jouissives là ou on ne les imagine pas
+- techniquement: créer un truc que je crois utile ou fun (installation sonore / sensorielle / collaborative par exemple). Sans but les patterns techniques me désintéressent (hard / soft ), avec je les trouve fascinant.
+
+Un boulot peut être fun et/ou fascinant (plus probable en auto-entrepreneur ou ptite boîte). Un boulot utilitaire a contrario a aussi ses avantages (équilibre de vie, on se fout de si ça marche bien ou pas). Mieux s'il:
+- est aussi peu de bullshit que nécessaire
+- est stimulant globalement niveau réflexion
+- a un impact positif, quitte à même en parler en dehors du boulot avec plaisir
+- offre une bonne pression: parce que je veux faire et je peux faire: pas parce qu'il faut et / ou que je suis dépendant des autres, du temps
+
+Sur la bonne pression, garde fou: ok pour y passer du temps, non pour prendre à coeur que ça avance plus rapidement que ça ne le fait, à moins que ce ne soit particulièrement valorisant, ponctuel et sur un périmètre bien cadré. Il est inacceptable de souffir d'un travail puisque l'objectif est la réalisation.
+
+/!\ Piège principal: vouloir concilier trop de choses et au final ne rien avoir d'excitant (ou de reposant :b).
+Attention surtout aux:
+- faire-valoir
+- aux savoirs dont on se dit qu'ils "pourraient" être utiles
+- aux boulot construits sur le long terme (la "carrière", les échelons, la hiérarchie, etc ...) 
+
+Critère ultime:
+Que je m'imagine à la fin du monde (au bar), en soirée, dans un entretien d'embauche ou sur la plage mon boulot me parait cool.
+
+Les petits +:
+- un boulot qui me permet d'être dehors
+- au contact d'autres hominidés
+
+Ajouter l'idée que ça comprend boulot au sens large de "réalisation de soi".
+Dans l'ordre croissant de ce qui m'excite:
+1. design
+2. identifier le caca
+3. utiliser le caca pour régénérer
+
+The very ideal job:
+- unimportant: not a matter of death and life (for me and others, even on a financial level)
+- lighthearted / bold / crazy / explorative
+- touches essential matters: love / environment / joy
+- thought provoking, thought centered, contantly re-definable
+
+**PLAY** RIEN NI PERSONNE NE M'Y INCITE MAIS LE JEU EST CENTRAL DANS LA SPIRITUALITE / LE BOULOT / LE DESIGN
+C'est ce plaisir qu'on ne subit pas, qu'on cultive. Dans le jeu il y a la curiosité, l'amour, la rébellion.
+It's like only play matters in the end and our "serious work stuff" are the real distraction. 
+
+Travailler plus pour gagner moins
+Si je m'imagine bosser gratos ça trie tous les trucs que j'ai pas vraiment envie de faire mais qui me motivent pour l'argent. En plus ça permet de s'imaginer sur des choses pour lesquelles on a aucune compétence. Et qque chose pour lequel on est prêt à sacrifier du confort, de la sécurité
