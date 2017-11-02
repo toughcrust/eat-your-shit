@@ -2,6 +2,12 @@
 
 En fait c'est pas des résumés plutôt des notes introductives de motivation. Mais bon auto-suffisantes qui contiennent pas mal d'éléments développés après. Donc tu trouves ça chiant dés ici => ce sera chiant aussi plus loin.
 
+## Does not feel good
+
+Sometimes I write stuff that I want to remember cause it feels important
+But I don't like reading it.
+I've come to have the intuition I'll need to re-write it later.
+
 ## It all starts with depression
 
 What you know should give up pleasure does not.
