@@ -2,6 +2,7 @@
 
 Je designe pas grand chose. J'adore faire des observations sur le design par contre.
 Un peu comme un politique ne connaît pas vraiment la gestion mais est très entraîné à en parler.
+Ou alors c'est parce que je cherche des "UN-DESIGNED EXPERIENCES" => me creuser un max la tête pour ne pas avoir à designer, vivre un max.
 
 ## L'aspect spirituel du design
 

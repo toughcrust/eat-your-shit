@@ -3,6 +3,10 @@
 Titres / sous-titres envisagés pour ce bouquin:
 - Nique ta merde
 - Good stuff without the bad stuff
+- L'étron et le nian nian => poop and sparkling heart
+- C'est excrément intéressant
+- Marcher la tête sur l'eau (trouver mieux. Idée: c'est pas parc qu'on à à faire à des problèmes flous qu'il ne faut pas appliquer des méthodes qui
+ont fait leur preuves)
 
 Cautionary notes from the author:
 

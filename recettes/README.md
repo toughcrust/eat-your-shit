@@ -77,6 +77,20 @@ sublimant les besoins et aspiration de la populace.
 
 à faire dans l'autre sens aussi ! Dans la partie sur la politique => analogie avec l'esprit et le mental !
 
+### Tu as besoin d'aide
+
+T'as déjà remarqué comme c'est plus simple de donner des conseils et même d'aider quand c'est pour quelqu'un d'autre ?
+Et bah c'est pareil pour toi: fais-toi aider:
+- + simple
+- fait grandir
+- si tu es reconnaissant c'est l'occasion de créer un vrai lien
+
+Y'a des milliards de trucs que je veux faire différemmnt, dont des trucs trop ambitieux et pesants (manger paleo vegan local)
+=> faut qu je me fasse aider, que je demande aux autres de trouver des solutions ingénieuses
+
+=> Ca me fait penser un truc en rapport avec le design: et si le rôle le + important n'était pas le design de problème:
+  faire en sorte de formuler une contradiction intéressante.
+
 
 En fait l'hygiène que j'essaie de m'imposer par rapport aux autres \(être explicite, honnête, mettre de côté les idées toutes faites les anticipations\) ça serait super utile que je me l'impose vis à vis de moi même.
 
