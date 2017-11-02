@@ -1,7 +1,11 @@
-# Vous êtes ici <emoji poop>
+# Ici, vous êtes*
 
-Sous-titres envisagés pour ce bouquin:
+_*courtesy of 104 et sûrement un eu de Yoda
+_
+Titres / sous-titres envisagés pour ce bouquin:
 - Eléments de branlette intelectuelle
+- Nique ta merde
+- Good stuff without the bad stuff
 
 Cautionary notes from the author:
 
