@@ -1,6 +1,6 @@
 # Summary
 
-* [You are here](README.md)
+* [You dare here](README.md)
 * [TL; Won't Read](tlwr/README.md)
 * [Tartines de labeur](labeur/README.md)
 * [Design: notes](design/README.md)

@@ -11,9 +11,9 @@ ont fait leur preuves)
 
 Cautionary notes from the author:
 
-- > Feel free to take whatever is worth to you and leave the shitty parts out. 
+> Feel free to take whatever is worth to you and leave the shitty parts out. 
   But well I value shit you know (see next) ...
-- > **EMBRACE POOP OR BURN IT WITH FIRE !!!**
-- > I need not fearful guidance but guidance to sublimate fear
+  **EMBRACE POOP OR BURN IT WITH FIRE !!!**
+  I need not fearful guidance but guidance to sublimate fear
 
-**_(\*) courtesy of 104 et sûrement un eu de Yoda_**
+**_(\*) courtesy of 104 et sûrement un peu de Yoda_**
