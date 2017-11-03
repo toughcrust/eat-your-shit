@@ -5,6 +5,7 @@ Titres / sous-titres envisagés pour ce bouquin:
 - Good stuff without the bad stuff
 - L'étron et le nian nian => poop and sparkling heart
 - C'est excrément intéressant
+- Crottes de zen (troc de zen)
 - Marcher la tête sur l'eau (trouver mieux. Idée: c'est pas parc qu'on à à faire à des problèmes flous qu'il ne faut pas appliquer des méthodes qui
 ont fait leur preuves)
 
