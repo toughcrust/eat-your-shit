@@ -25,6 +25,10 @@ racheter de la sauce soja. boire un peu de vin ? concentré de tomates.
 Racheter de l'huile de lin !
 Spiruline: où acheter ?
 
+vers vegan:
+Plus d'umami: balsamique + tamari + épices !
+**flocons de levure pour B12 + satieté**
+
 ébauche / idée de mon régime alimentaire ultra hype:
 chewing liquidarianism => c'est la production de salive qui est ultra nourissante et permet de bien assimiler la nourriture: mâcher à fond et des aliments qui font saliver.
 Sinon: laisser la bouche dicter ce que je dois manger, en quelle quantité et quand
