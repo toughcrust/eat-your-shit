@@ -17,6 +17,7 @@
         }
     },
     "pdf": {
+        "pageNumbers": true,
         "fontFamily": "Garamond",
         "fontSize": 8,
         "paperSize": "a6",
