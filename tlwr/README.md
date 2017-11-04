@@ -2,6 +2,10 @@
 
 En fait c'est pas des résumés plutôt des notes introductives de motivation. Mais bon auto-suffisantes qui contiennent pas mal d'éléments développés après. Donc tu trouves ça chiant dés ici => ce sera chiant aussi plus loin.
 
+## Trying to be honest about writing this stuff
+
+for me but also to make something of my exentialist over-questioning. Transform a plague into something that can help me get laid more easily with girls I have an intellectual connection with (and a physical attraction)
+
 ## Does not feel good
 
 Sometimes I write stuff that I want to remember cause it feels important
