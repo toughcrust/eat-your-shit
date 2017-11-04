@@ -3,16 +3,20 @@
 Titres / sous-titres envisagés pour ce bouquin:
 - Nique ta merde
 - Good stuff without the bad stuff
-- L'étron et le nian nian => poop and sparkling heart
-- C'est excrément intéressant
-- Crottes de zen (troc de zen)
-- Marcher la tête sur l'eau (trouver mieux. Idée: c'est pas parc qu'on à à faire à des problèmes flous qu'il ne faut pas appliquer des méthodes qui
-ont fait leur preuves)
+- Fermentation, pourriture et alteration de conscience
+- `CR_vidange_cerveau_2017-11.docx`
+- SEO optimized self development definitive guide
+- L'étron et le nian nian
+- Dé-troc ton zen
+- Nan mais on marche sur l'eau là
+
+Les avis que j'aimerais qu'on donne:
+- C'est excrément intéressant et sérieusement léger
 
 Cautionary notes from the author:
 
 > Feel free to take whatever is worth to you and leave the shitty parts out. 
-  But well I value shit you know (see next) ...
+  But well I value shit you know (TO BE CONTINUED) ...
   **EMBRACE POOP OR BURN IT WITH FIRE !!!**
   I need not fearful guidance but guidance to sublimate fear
 
