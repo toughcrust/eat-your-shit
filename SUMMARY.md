@@ -1,7 +1,5 @@
 # Au menu
 
-* [C'est chiant ce README obligatoire](README.md)
-
 ### Hors oeuvres
 
 * [You dare here](intro.md)
