@@ -17,7 +17,7 @@
         }
     },
     "pdf": {
-        "fontFamily": "Helvetica",
+        "fontFamily": "Garamond",
         "fontSize": 8,
         "paperSize": "a6",
         "margin": {
