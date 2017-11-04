@@ -1,4 +1,5 @@
-Mon manuel de "life-hacking" à tendance minimaliste et convivialiste \(et franglish ...\). 
+**Quoi que c'est ?** 
+Principalement mon manuel de _self / life hacking_ à tendance minimaliste et convivialiste.
 
-Also, éléments de branlette intelectuelle.
-
+**Et aussi**
+Pas mal de branlette intellectuelle. Parce que ça fait du bien là où ça fait mal.
