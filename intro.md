@@ -1,11 +1,5 @@
 # Ici, vous êtes (*)
 
-> **[info] For info**
->
-> Use this for infomation messages.
-
-
-
 A foutre qque part:
 > Le véritable voyage de découverte ne consiste pas à chercher de nouveaux paysages, mais à avoir de nouveaux yeux.
 
