@@ -1,5 +1,10 @@
 # Ici, vous êtes (*)
 
+A foutre qque part:
+> Le véritable voyage de découverte ne consiste pas à chercher de nouveaux paysages, mais à avoir de nouveaux yeux.
+
+_Prout_
+
 Titres / sous-titres envisagés pour ce bouquin:
 - Nique ta merde
 - Good stuff without the bad stuff
