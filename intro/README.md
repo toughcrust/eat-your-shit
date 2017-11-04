@@ -1,6 +1,40 @@
+# Ici, vous êtes (*)
+
+A foutre qque part:
+> Le véritable voyage de découverte ne consiste pas à chercher de nouveaux paysages, mais à avoir de nouveaux yeux.
+
+_Prout_
+
+Titres / sous-titres envisagés pour ce bouquin:
+- Nique ta merde
+- Good stuff without the bad stuff
+- Fermentation, pourriture et alteration de conscience
+- `CR_vidange_cerveau_2017-11.docx`
+- SEO optimized self development definitive guide
+- L'étron et le nian nian
+- Dé-troc ton zen
+- Nan mais on marche sur l'eau là
+
+Les avis que j'aimerais qu'on donne:
+- C'est excrément intéressant et sérieusement léger
+
+Cautionary notes from the author:
+
+> Feel free to take whatever is worth to you and leave the shitty parts out. 
+  But well I value shit you know (TO BE CONTINUED) ...
+  **EMBRACE POOP OR BURN IT WITH FIRE !!!**
+  I need not fearful guidance but guidance to sublimate fear
+
+**_(\*) courtesy of 104 et sûrement un peu de Yoda_**
+
 ## Trying to be honest about writing this stuff
 
 for me but also to make something of my exentialist over-questioning. Transform a plague into something that can help me get laid more easily with girls I have an intellectual connection with (and a physical attraction)
+
+## From a challenged mind
+
+big social disability: no problem face to face but I can't  while I'm convinced this is a major if not THE most thrilling thing in life. I don't reach out to people?
+See also: written under depression (but not without happiness)
 
 ## Does not feel good
 

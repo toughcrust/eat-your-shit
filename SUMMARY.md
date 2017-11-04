@@ -1,6 +1,6 @@
 # Summary
 
-* [You dare here](README.md)
+* [You dare here](intro/README.md)
 * [Tartines de labeur](labeur/README.md)
 * [Design: notes](design/README.md)
 * [Ivre de recettes](recettes/README.md)
