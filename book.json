@@ -18,13 +18,13 @@
     },
     "pdf": {
         "fontFamily": "Helvetica",
-        "fontSize": 8,
+        "fontSize": 6,
         "paperSize": "a6",
         "margin": {
-            "right": 62,
-            "left": 62,
-            "top": 36,
-            "bottom": 36
+            "right": 10,
+            "left": 10,
+            "top": 10,
+            "bottom": 10
         }
     }
 }
