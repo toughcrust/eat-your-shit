@@ -1,4 +1,4 @@
-J'ai bien compris merci. Es-tu certaine Céline !!???
+J'ai bien compris merci Céline.
 
 ## Langage et structuration
 L'H / je ne réfléchis bien que sur ce que je peux manipuler / expérimenter / hacker. Le language n'est pas la réflexion mais il offre (encore plus avec l'écriture)

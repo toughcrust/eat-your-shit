@@ -8,6 +8,6 @@
 * [Dénormalisation](denormalization/README.md)
 * [My indie spirituality](spirituality/README.md)
 * [Incarné](viviter/README.md)
-* [Plaisir](plaisir.md)
-* [J'ai compris tous les mots](jai-compris-tous-les-mots.md)
+* [Plaisir](plaisir/README.md)
+* [J'ai compris tous les mots](mots/README.md)
 
