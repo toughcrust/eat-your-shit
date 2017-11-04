@@ -23,7 +23,7 @@
     },
     "pdf": {
         "fontFamily": "Arial",
-        "fontSize": 16,
+        "fontSize": 8,
         "paperSize": "a6",
         "margin": {
             "right": 62,
