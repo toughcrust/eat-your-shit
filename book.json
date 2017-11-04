@@ -1,5 +1,5 @@
 {
-    "plugins": ["autocover", "alerts"],
+    "plugins": ["autocover", "callouts"],
     "pluginsConfig": {
         "autocover": {
             "font": {

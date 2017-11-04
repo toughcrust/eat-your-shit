@@ -6,27 +6,10 @@ Pas mal de branlette intellectuelle. Parce que ça fait du bien là où ça fait
 
 Tests de https://github.com/hypertrack/gitbook-plugin-alerts:
 
-> **[info] For info**
+> #### Info::Info
 >
-> Use this for infomation messages.
+> Encore un test de plugin !
 
-bah
-
-> **[warning] For warning**
->
-> Use this for warning messages.
-
-euh
-
-> **[danger] For danger**
->
-> Use this for danger messages.
-
-certes
-
-> **[success] For info**
->
-> Use this for success messages.
 
 
 
