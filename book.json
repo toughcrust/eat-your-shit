@@ -18,7 +18,7 @@
     },
     "pdf": {
         "fontFamily": "Helvetica",
-        "fontSize": 6,
+        "fontSize": 8,
         "paperSize": "a6",
         "margin": {
             "right": 10,
