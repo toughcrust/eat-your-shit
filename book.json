@@ -1,0 +1,35 @@
+{
+    "plugins": ["autocover"],
+    "pluginsConfig": {
+        "autocover": {
+            "font": {
+                "size": null,
+                "family": "Impact",
+                "color": "#FFF"
+            },
+            "size": {
+                "w": 1800,
+                "h": 2360
+            },
+            "background": {
+                "color": "#09F"
+            }
+        },
+        "fontSettings": {
+            "theme": "night",
+            "family": "serif",
+            "size": 2
+        }
+    },
+    "pdf": {
+        "fontFamily": "Arial",
+        "fontSize": 16,
+        "paperSize": "a6",
+        "margin": {
+            "right": 62,
+            "left": 62,
+            "top": 36,
+            "bottom": 36
+        }
+    }
+}
