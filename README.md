@@ -31,6 +31,11 @@ Cautionary notes from the author:
 
 for me but also to make something of my exentialist over-questioning. Transform a plague into something that can help me get laid more easily with girls I have an intellectual connection with (and a physical attraction)
 
+## From a challenged mind
+
+big social disability: no problem face to face but I can't  while I'm convinced this is a major if not THE most thrilling thing in life. I don't reach out to people?
+See also: written under depression (but not without happiness)
+
 ## Does not feel good
 
 Sometimes I write stuff that I want to remember cause it feels important
