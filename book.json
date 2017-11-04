@@ -14,15 +14,10 @@
             "background": {
                 "color": "#09F"
             }
-        },
-        "fontSettings": {
-            "theme": "night",
-            "family": "serif",
-            "size": 2
         }
     },
     "pdf": {
-        "fontFamily": "Arial",
+        "fontFamily": "Helvetica",
         "fontSize": 8,
         "paperSize": "a6",
         "margin": {
