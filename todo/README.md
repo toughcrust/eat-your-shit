@@ -207,3 +207,6 @@ https://markmanson.net/6-books
 chorale pop: https://www.lumiiq.com/uniisson/?gclid=CjwKEAjws-LKBRDCk9v6_cnBgjISJAADkzXeT4hEOIolXkbKxVm_xcdrTO621DdYaeFRldObz5btcBoCnJPw_wcB#infospratiques
 
 La cellule comme être conscient => passage à l'échelle jusqu'à l'Homme. + lien avec la musique ?
+
+https://www.amazon.com/Clean-Money-Revolution-Reinventing-Capitalism/dp/0865718393
+
