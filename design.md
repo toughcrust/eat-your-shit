@@ -4,6 +4,9 @@ Je designe pas grand chose. J'adore faire des observations sur le design par con
 Un peu comme un politique ne connaît pas vraiment la gestion mais est très entraîné à en parler.
 Ou alors c'est parce que je cherche des "UN-DESIGNED EXPERIENCES" => me creuser un max la tête pour ne pas avoir à designer, vivre un max.
 
+Blueprint pour se focaliser
+https://www.radicalproduct.com/RadicalProductCanvas_v1.0.pdf
+
 ## L'aspect spirituel du design
 
 Pourquoi les idées sur le design sont importantes ?
