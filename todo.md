@@ -1,6 +1,6 @@
-# Des listes \(a\)variées
+# Des listes \(à\)variées
 
-## MUST dream {#must-dream}
+## MUST dream
 
 * Walk trip around Africa \(dunno where exactly\)
 
@@ -21,7 +21,6 @@
 * [ ] un espèce de "perfect senses" IRL
 * [ ] intuitive singing [https://www.youtube.com/watch?v=C8CRedGz9qQ](https://www.youtube.com/watch?v=C8CRedGz9qQ)
 * [ ] a définir: trail / marche dans les pyrénées
-* [ ] kung fu fury
 * [ ] Cocon d'isolation
 * [ ] lucid dreaming
 * [ ] stage de survie: [https://www.cap-adrenaline.com/stage-survie-region-parisienne-P37901.html\#bloc-avis](https://www.cap-adrenaline.com/stage-survie-region-parisienne-P37901.html#bloc-avis) ou [http://www.gens-des-bois.org](http://www.gens-des-bois.org)
@@ -45,9 +44,7 @@ Idées un peu random autour de **musique / méditation / biofeedback**:
 * chants religieux + tambours chamaniques \(ex Hildegard von Bingen [https://www.youtube.com/watch?v=Ei88J4lERbk](https://www.youtube.com/watch?v=Ei88J4lERbk) + [https://www.youtube.com/watch?v=BkzA\_u9smXU&t=311s](https://www.youtube.com/watch?v=BkzA_u9smXU&t=311s)\). Ajouter des sons binauraux par dessus qui sont modulés en fonction du rythme cardiaque et / ou de la musique elle même
 * un peu comme avant: mettre des percussions et moduler des sons binauraux sur des chants grégoriens. Utiliser l'API DOM audio: [https://developer.mozilla.org/fr/docs/Web/API/Web\_Audio\_API](https://developer.mozilla.org/fr/docs/Web/API/Web_Audio_API). Avec [https://alemangui.github.io/pizzicato/](https://alemangui.github.io/pizzicato/) ?
 
-En moins chiant / TOOMUCHBOILERPLATE: le mec qui fait de la techno avec des tubes dans la rue
-
-Sur mon projet flou méditation + musique:  
+Sur mon projet flou méditation + musique:
 parler, crier, s'exprimer =&gt; amplifier \(corriger ?\) ce son pour le retransmettre au corps \(au coeur et vice versa ?\)  
 l'acoustique =&gt; celle des lieux sacrés  
 le mouvement et la musique [https://www.youtube.com/watch?v=Hb2u60AXvs0](https://www.youtube.com/watch?v=Hb2u60AXvs0) \(ne manque que la parole\)... Remplacer la danse soufi par le combat \(et crier ?\)  

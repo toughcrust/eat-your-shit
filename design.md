@@ -1,5 +1,10 @@
 # Design
 
+Ah merde ! qqun l'a dit avant moi
+It’s much more than creating, it’s about understanding your problem so well that the solution is obvious.
+https://uxdesign.cc/questions-ux-designers-should-be-asking-bc9a6ba87a34
+=> plein de questions bien dans cet article !
+
 Je designe pas grand chose. J'adore faire des observations sur le design par contre.
 Un peu comme un politique ne connaît pas vraiment la gestion mais est très entraîné à en parler.
 Ou alors c'est parce que je cherche des "UN-DESIGNED EXPERIENCES" => me creuser un max la tête pour ne pas avoir à designer, vivre un max.
@@ -198,6 +203,21 @@ Actually it is even a pre-requisite: how the hell do you want to tackle an issue
 > **Thought provoking fun** !
 
 Having fun makes it easy to get seriously excited ("An app where your mother creates your profile" as a starting point for the sad state of relationships these days)
+
+### A caler qque part
+
+Points d'attentions:
+- suis nos aspirations (aspirationnal)
+- simple, sans contrainte / pré-requis / préavis (enjoyable, disposable)
+- dépasse la nature animale de l'homme ("Let's get better together")
+- Find common ground (inclusive)
+- Pleasurable
+- antifragile: les épreuves rendent plus fort => utiliser les signaux de douleur pour se renforcer
+- nourrissier (blue economy)
+- weird is good. carnaval spirit
+- "no smart ass" => fonctionnement explicite, explicable. mode dégradé pensé comme inévitable
+- progressive & natural when possible (macher plutôt qu'appareil dentaire, marcher plutôt qu'exos barefoot) => dés que possible
+  éviter les grands chamboulements risqués et où on perd d'abord avant d'éventuellement y gagner (=> build faith don't expect it)
 
 ### Maximes
 

@@ -1,6 +1,27 @@
 # Les recettes !
 
-## Sans
+
+J'ai terriblement terriblement besoin de hugs !
+
+Ma super recette d'aujourd'hui:
+- graines germées
+- h. olive + h. lin
+- sauce tamari
+- vinaigre de cidre
+- levure de bière
+C'était satisfaisant comme pain fromage confiote, en juste beaucoup plus léger à avaler.
+=> putain c'est ce genre d'alternative de dingue que je kiffe.
+
+commencer une issue "pbs de santé" sur toughcrust:
+- la santé mentale => S'avouer malade ! s'abandonner à la maladie (corps / mental) pour au contraire ne pas se résigner (bien dissocier l'esprit qui lui n'est jamais malade)
+- la respiration => mauvaise respiration == brain fog
+- lien entre pectus excavatum et bide ? SOLUTION contre pectus avec exercice trouvé par moi :b ? se mettre le dos droit en se penchant puis remonter en poussant sur les cuisses
+- la langue et son rôle dans la posture. plus de mastication comme avant => petits palais. SOLUTION: mâcher du coton ! lave les dents aussi
+- l'alimentation indapatée à nos corps. pas de minéraux venant de l'argile ou des os. gout de la graisse remplacée par sucre (cheap)
+- la marche qui déforme nos corps et la posture => marcher pieds nus
+- le confort qui nous rend moins vivant (cette sensation d'excitation de la douche froide) => course au plaisir extrême dans le confort (ex moto)
+
+## Sans T (lol)
 
 ce vers quoi je tends:
 - sans lit
@@ -195,3 +216,15 @@ Est-ce que ça pourrait pas résoudre cette contradiction dont j'ai du mal à me
 Comment ? me permettre de "lâcher les chevaux" en faisant en sorte que tout soit explicité, clair, VRAIMENT pensé
 
 
+mental: focus on archetypal analysis
+spirit: detached , fun and caring dude behind TV with his bros
+
+Plus important que les "dons" avec lesquels on est nés: ce qui nous donne du plaisir et comment on l'utilise pour grandir
+
+"Dans ma religion" J'aime cette expression. Elle est pas si provocante. Elle dit bien qu'on agit selon des préceptes dans lesquels ont a foi. Qui ont pu tout à fait être "établis" rationnellemnt mais dont le cheminement nous échappe dns l'instant présent où l'on s'y fie
+
+Être entier de toutes ses entièretés. Pour moi ça veut dire être fun et philosophe quand il s'agit de rêves et d'aspirations. Être humaniste dans mes emotions et mes colères avec en toile de fond l'idée que l'homme est un animal qui peut s'élever au dessus de lui même, etc avec le reste du zodiaque. ..
+
+C'est notre propre jugement qui est en fait le plus dur à avaler. C'est quand une partie de nous est d'accord avec un jugement extérieur qu'il nous pourrit.
+
+Trouver son plaisir et poursuivre ses aspirations dans les différents niveaux: faits émotions sentiments etc.. rencontrer les autres dans ce que leurs plaisirs et aspirations ont en commun. Dénicher cette infime part d'eux qui semble être soi. Pour l'obtenir il faut réussir à accepter d'être jugé (car on doit se dévoiler), rester sincère.

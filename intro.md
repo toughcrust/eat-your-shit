@@ -17,6 +17,8 @@ Titres / sous-titres envisagés pour ce bouquin:
 
 Les avis que j'aimerais qu'on donne:
 - C'est excrément intéressant et sérieusement léger
+- > J'admire votre façon de ne pas rester à la surface des choses - d'être prêt à partager vos réflexions en toute honnêteté et en toute liberté.
+  > De l'auteur de "Le problème Spinoza" !
 
 Cautionary notes from the author:
 

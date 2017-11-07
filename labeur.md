@@ -63,10 +63,6 @@ Attention surtout aux:
 Critère ultime:
 Que je m'imagine à la fin du monde (au bar), en soirée, dans un entretien d'embauche ou sur la plage mon boulot me parait cool.
 
-Les petits +:
-- un boulot qui me permet d'être dehors
-- au contact d'autres hominidés
-
 Ajouter l'idée que ça comprend boulot au sens large de "réalisation de soi".
 Dans l'ordre croissant de ce qui m'excite:
 1. design
@@ -88,8 +84,6 @@ Si je m'imagine bosser gratos ça trie tous les trucs que j'ai pas vraiment envi
 
 ### Biz ideas
 
-- un truc qui m'a toujours tourné en tête: comment faire en sorte de bosser n'importe où: pouvoir écrire un doc à la con en faisant une rando
-- Conversational UI for computer-aided human communication: un mode d'échange sans IA ou l'info est faite pour faciliter le traitement, expliciter mais ou l'humain est au centre. Un bot qui est là pour faire vivre une conversation, la relancer, etc ... (s'inspirer des mails des amoas avec whatmille trucs à faire)
 
 Je suis fasciné par: la profusion spontanée du végétal, survivre éthiquement aux catastrophes qui vont nous tomber sur la gueule (à l'opposé du survivalisme, vivre en pleine nature, pas contre elle), comprendre comment les choses fonctionnent. Mais je suis profondément un citadin.
 Il faut viser plus loin que l'économie circulaire et exploiter carrément la merde qu'on produit. Parce qu'on sait pertinemment qu'on atteint pas les objectifs fixés (dans le meilleur des cas on en atteint d'autres de façon inattendu)
@@ -98,32 +92,34 @@ Il faut viser plus loin que l'économie circulaire et exploiter carrément la me
 Les thèmes qui me touchent
 - la consommation comme réel pouvoir de transformation de la société et d l'environnement
 
-Faire un lien avec l'issue "Sucker traps"
 
-Elever des insectes pour leur capacité de traitement / les manger ?
-Les nourrir de caca bio ?
-http://www.fao.org/docrep/018/i3253e/i3253e.pdf
+Attitude idéale dans le boulot
+    We basically shouldn't need each other if it's not for bonding
+    So I won't help you unless you have a good problem to solve
+    I will surely not work for free, especially if it's annoying
+    I will pay you if you give me work that unexpectedly opens my horizons
 
-"petit data" => réduire la quantité de données à traiter, se recentrer sur l'essentiel
+Working for your own baby
+    J'aime générer des idées sur les projets des autres et j'aime que ce soit mon boulot.
+    Moi si je suis pas convaincu qu'un projet va changer la face du monde, je serais pas motiver pour le porter seul.
+    D'ailleurs c'est même pas sûr que s'il change la face du mond je serais motivé pour autant
 
-Idée Biz
-"We don't need each other"
-I won't help you till you don't find a good problem to solve
-=> I won't work for free if it's annoying
-=> I'll pay you if you give me thrilling work
+Les obsessions des gens
+    Dans les obsessions, certaines ne sont pas bonnes dans le cadre du boulot.
+    rata et son obsession d'être chef. De reconstruire le monde.
+    Moi et mon obsession de faire simple. MOn obsession de bosser dans l'info alors que la tech me désintéresse ...
+    => il faut trouver qqun qque chose qui s'opposent à nos obsessions
 
-Dans les obsessions, certaines ne sont pas bonnes dans le cadre du boulot.
-rata et son obsession d'être chef. De reconstruire le monde.
-Moi et mon obsession de faire simple. MOn obsession de bosser dans l'info alors que la tech me désintéresse ...
-=> il faut trouver qqun qque chose qui s'opposent à nos obsessions
+Domaines qui pourraient me parler:
 
-J'aime générer des idées sur les projets des autres et j'aime que ce soit mon boulot. Moi si je suis pas convaincu qu'un projet va changer la face du monde, je serais pas motiver pour le porter seul. D'ailleurs c'est même pas sûr que s'il change la face du mond je serais motivé pour autant
+- Valorisation des déjections https://www.lutopik.com/article/les-toilettes-seches-sortent-du-trou
+- Végétaliser la ville / Faire des forêts nourricières
+- Aliments germés / fermentés locaux
 
-https://www.lutopik.com/article/les-toilettes-seches-sortent-du-trou
+Des systèmes naturels ou assimilés pour assurer une profusion du basique, de l'essentiel. Encore plus kiffant si c'est
+quelque chose où à l'heure actuelle on gâche / se gâche (Céline, je pense encore à toi, j'irai te chercherdans les flammes).
 
-trucs pros qui m'intéressent:
-internet de la forêt
-végétaliser la ville
-pas de déchets
-utiliser caca et urines des gens
-=> bref des systèmes naturels ou assimilés qui assurent une profusion à la fois basique (c'est des besoins essentiels) et des luxes si on y fait pas gaffe
+Plus dans la geekerie:
+
+- un truc qui m'a toujours tourné en tête: comment faire en sorte de bosser n'importe où: pouvoir écrire un doc à la con en faisant une rando
+- Conversational UI for computer-aided human communication: un mode d'échange sans IA ou l'info est faite pour faciliter le traitement, expliciter mais ou l'humain est au centre. Un bot qui est là pour faire vivre une conversation, la relancer, etc ... (s'inspirer des mails des amoas avec whatmille trucs à faire)

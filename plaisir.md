@@ -1,5 +1,8 @@
 # Pain & cherries
 
+Trouver les bonnes contraintes pour devenir une meilleure personne et sublimer son plaisir
+=> sweet pains ?
+
 plus perturbant que ne pas trouver de sens à la vie: **ne pas prendre de plaisir à ce que l'on imagine prendre du plaisir / ne pas savoir où trouver le plaisir**. Pour moi c'est l'incapacité à profiter de ce que j'ai, d'aller chercher ce qui me donne envie qui me met dans cette quête de sens. Mais en fait c'est le plaisir qui m'intéresse
 
 > Pleasure is the only thing worth having a theory about
