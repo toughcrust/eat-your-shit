@@ -1,6 +1,15 @@
 # Les recettes !
 
 
+**Pour ne pas papilloner / Vaincre la résistance / Faire tout simplement** 
+=> En fait si imaginer faire une chose était quasi équivalent à le faire on aurait tout à fait raison de ne pas se poser et prendre le temps de faire 1 chose bien. Mais en fait ce n'est pas le cas ! Quand je prends une idée et que je prends le temps de la mettre par écrit plutôt que de la laisser revenir à l'esprit régulièrement tout autre chose se passe:
+- ça prend forme (l'équivalent pour un bigleux de mettre des lunettes) et ça éclaircit sur mes vraies motivations à entretenir telle pensée !
+- les dérives sont contenues pour former un tout plus grand que les ensembles pris séparément (qui dans la tête seul restent à jamais inachevés, séparés)!
+- j'accouche de quelque chose de meileur que moi (parce que non volatile) 
+
+**ET en fait idée séduisante=> si je m'attèle à un peu n'importe quoi sur lequel je suis capable de me concentrer et décide de m'appliquer à cette chose, je vais pouvoir lentement dériver vers un but et une forme de travail qui correspondent à de plus profondes aspirations que l'obsession de l'instant.**
+          
+
 J'ai terriblement terriblement besoin de hugs !
 
 Ma super recette d'aujourd'hui:
