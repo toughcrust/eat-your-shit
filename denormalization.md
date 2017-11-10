@@ -1,3 +1,6 @@
+Ce qui est ironique dans le fait de vouloir plaire aux autres: on voit très facilemnt qu'in fine c'est à soi même qu'on veut plaire: "Je veux voir dans tes yeux le reflet de la joie que j'ai moi même quand je dis ou que j'agis comme ça".
+D'où le fait qu'agir contre son plaisir pour plaire aux autres est très douloureux: **c'est un putain de court-circuit !**
+
 **L'animal auto-conditionné**
 L'homme est un animal conditionné qui a la particularité de s'auto-conditionner de manière incroyable. Et qui est obsédé par ça, en ne se rendant quasi jamais compte qu'il le fait !
 On sait bien que les us et coutumes sont très différents entre époques et pays par exemple, mais ça ne nous empêche pas d'essayer de nous fondre dans un moule. Et a contrario on veut souvent se conditionner à sortir de nos conditionnements (se forcer à faire du sport, à voir les choses positivement, etc ...).
