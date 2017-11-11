@@ -1,3 +1,7 @@
+Beware of shortcuts which are short circuits
+============================================
+
+
 Ce qui est ironique dans le fait de vouloir plaire aux autres: on voit très facilemnt qu'in fine c'est à soi même qu'on veut plaire: "Je veux voir dans tes yeux le reflet de la joie que j'ai moi même quand je dis ou que j'agis comme ça".
 D'où le fait qu'agir contre son plaisir pour plaire aux autres est très douloureux: **c'est un putain de court-circuit !**
 
