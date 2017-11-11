@@ -1,3 +1,7 @@
+My specialties: be there, listen, question, suggest, digest, synthetize
+
+What I'm driven to especially: downgrade technology. really get to understand and get to work with hi-tech but find easier way to do it. How not not use it !
+
 je crois que j'ai besoin de faire un boulot vraiment pépère mais léger, fun, engageant
 
 Inspiré par le code:
