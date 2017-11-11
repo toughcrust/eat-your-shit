@@ -1,3 +1,15 @@
+Projet: "The terrestrial space station"
+boire mon urine avec de l'argile
+faire de la culture à partir de mon caca
+faire un cocon d'isolation
+=> Un truc moitié sérieux moitié ironique sur la conquête spatiale
+=> Entre minimalisme et folie des grandeurs
+=> Entre pragmatisme et superflu total
+=> **Vivre ici et maintenant le défi de la conquête spatiale**
+Que des avantages plutôt que de se préoccuper d'envoyer des fusées dans l'espace (je vois pas en quoi aller sur une planète qui a de toutes façons moins de choses va aider de quelque sorte que ce soit ...)
+Y'a une idée de jeu de rôle, de SF, de mise en situation aussi derrière, etc ...
+
+
 My specialties: be there, listen, question, suggest, digest, synthetize
 
 What I'm driven to especially: downgrade technology. really get to understand and get to work with hi-tech but find easier way to do it. How not not use it !
