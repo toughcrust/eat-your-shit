@@ -1,5 +1,7 @@
 # Des listes \(à\)variées
 
+make eggshells bio available
+
 ## MUST dream
 
 * Walk trip around Africa \(dunno where exactly\)
