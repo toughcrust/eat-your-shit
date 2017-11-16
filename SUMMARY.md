@@ -2,7 +2,6 @@
 
 ## Hors oeuvres
 
-* [TODO](todo.md)
 * [meta TODO](meta-todo.md)
 * [INBOX: Brain dump](inbox-brain-dump.md)
 * [Introduction](README.md)
