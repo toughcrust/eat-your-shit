@@ -204,6 +204,8 @@ In his exquisite introduction to Anti-Oedipus, Foucault suggests the book is an 
 - Don’t become enamored of power
 ```
 
+Sondra barrett: le secret de vos cellules 
+
 the Structure of Scientific Revolutions ?  
 The subtile art of not giving a fuck.  
 [https://markmanson.net/6-books](https://markmanson.net/6-books)

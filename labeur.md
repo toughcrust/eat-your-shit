@@ -1,3 +1,6 @@
+Faudrait vraiment que je bosse pour un truc pour lequel je suis prêt à payer 
+
+
 Projet: "The terrestrial space station"
 boire mon urine avec de l'argile
 faire de la culture à partir de mon caca

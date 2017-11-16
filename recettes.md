@@ -1,5 +1,12 @@
 # Les recettes !
 
+#### The holidays feeling
+Quand je prends une douche froide
+Quand je sors de moi même pour parler avec enthousiasme 
+
+Pour se protéger de ce qu'on perçoit de négatif
+Pour aller de l'avant même quand ça va pas
+Sans se forcer à penser positif, c'est plus un choix du corps qui tente d'influencer le mental
 
 **Pour ne pas papilloner / Vaincre la résistance / Faire tout simplement** 
 => En fait si imaginer faire une chose était quasi équivalent à le faire on aurait tout à fait raison de ne pas se poser et prendre le temps de faire 1 chose bien. Mais en fait ce n'est pas le cas ! Quand je prends une idée et que je prends le temps de la mettre par écrit plutôt que de la laisser revenir à l'esprit régulièrement tout autre chose se passe:

@@ -4,6 +4,11 @@ Ouais, ouais, certes ... Mais **qui, quoi, comment ?** j'ai envie de te dire !
 
 Faut-il se programmer ? faut-il des mantras / principes ? Faut-il une une discipline ou au contraire se relâcher ? Tout retenir, tout oublier, se contredire ou s'entêter ?
 
+Que des choses avec lesquelles je ne suis pas en phase en permanence (contrairement aux recettes de vie) mais qui ont le pouvoir de m'enflammer.
+
+#### Absence de moyens - Ambitions démesurée
+Nous bâtirons un rêve inespéré, une simplicité d'abondance et de beauté insoupçonnée sur les ruines d'une croyance aveugle dans une fuite en avant technophile, influençable et sourde aux désirs profonds. Au triste et lamentable projet de détruire la terre pour se réfugier en des lieux bien plus hostiles encore  (qui n'est en fait motivé que par le desir prestige) nous puiserons nos ressources dans leurs déchets et leur conneries, nous serons les recycleurs des futurs de merde. Les limitations que l'on s'impose ne font pas de nous des hommes de petite ambition, elles font des nous des hommes dune détermination effrayante.
+
 
 **Sections: la version littéraire enflammée, la version putain de cool, la version paléo (+ antifragile + évolutionnariste), la version ésotérique astro, la version 
 => comme dit dans l'hygiène mentale / spiritualité je dois faire tout ça en même temps. Toute possibilité entrevue est une réalité car la réalité la plus tangible est la pensée.**
