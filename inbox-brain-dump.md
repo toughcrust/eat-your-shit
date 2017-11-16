@@ -1,3 +1,7 @@
+Apprécier l'art:
+Cette structure qui bouge près du centre G. Pompidou: je l'apprécie pas du tout pareil si je sais que l'artiste a toujours été attristé par la fixité des scupltures dans la rue. Savoir d'où il vient je ressens le côté libérateur de l'art. Alors qu'être confronté à une oeuvre qui ne me parle pas: au contraire énervement d'être enfermé dans la futilité présomptueuse d'un autre. 
+En même temps: ne pas savoir => créer ses propres interprétations
+
 I want to die as a beautiful, mature and rare fruit that people can feed on. 
 Also, I took little resources to grow and unexpected / ingenious ways.
 
