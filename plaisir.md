@@ -1,5 +1,15 @@
 # Pain & cherries
 
+Nouvelle note !
+Il faut une bonne raison pour ne pas se laisser dévorer par l'attraction du plaisir !
+Je me suis beaucoup contraint niveau nourriture par ex: ne pas manger ci ou ça parce que j'ai eu incessamment des "retours de batôns"
+comme si j'étais punis de ne pas avoir une vie assez ascétique.
+Mais ptet ce que je devrais / aurais dû faire c'est trouver une manière alternative de combler ce désir qui happe.
+Ou alors dans une régulation "intelligente" => no limit sur le choco non raffiné par exemple.
+Rejoint une autre idée récente: le kiff se découvre près de sa perte. Vivre se révèle quand on cotoie la mort.
+Une façon safe de s'en approcher c'est de courir un marathon par ex: on arrive très lentement aux limites du corps, on tutoie la mort.
+Donc pour un plaisir sans limite qui dévore prudemment mais sûrement ?
+
 Trouver les bonnes contraintes pour devenir une meilleure personne et sublimer son plaisir
 => sweet pains ?
 

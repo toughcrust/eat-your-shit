@@ -14,6 +14,7 @@ Titres / sous-titres envisagés pour ce bouquin:
 - L'étron et le nian nian
 - Dé-troc ton zen
 - Nan mais on marche sur l'eau là
+- "story of my no life" => dedicace besson
 
 Les avis que j'aimerais qu'on donne:
 - C'est excrément intéressant et sérieusement léger

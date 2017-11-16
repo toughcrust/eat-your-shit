@@ -1,5 +1,16 @@
 # My very own indie sprirituality
 
+A caser: l'âme qui s'attache à des fractales de matière
+
+warning: toujours pas de volonté d'avoir LA vérité, juste poser des trucs, approfondir et avoir un "mieux qu rien" quand nécessaire
+donc:
+- "ce qui est en haut est comme ce qui est en bas" => la conscience peut s'accrocher à une cellule comme un homme + on a conscience que du superficiel de notre corsp + mental
+- les hommes sont des branches de la même graine
+- y'a des fractales qui bougent, des branches qui bourgeonnent, embeliisent, grandissent, d'autres meurent
+- en même temps passivité => l'âme "go with the flow" spectateur
+- en même temps ce serait pour moi la force vitale du mouvement: "Je pense qu cette graine / cette branche / ce début de mouvement
+  mérite sa place dans un équilibre harmonieux des choses. Je vais me concentrer desssus, apprendre à le connaître et le faire grandir"
+
 ### De quoi on (je) parle ?
 
 When you suddenly have thoughts the game designer would have while you're actually planning:
