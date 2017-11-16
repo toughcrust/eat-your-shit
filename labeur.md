@@ -1,11 +1,12 @@
 Faudrait vraiment que je bosse pour un truc pour lequel je suis prêt à payer 
 
-
 Idée boulot très pragmatique:
 Sites web minimalistes design et pérennes via accessibilité
 voir la conf 100 Days of A11y: A Web Designer's Journey to Learning Accessibility ?
 => design studio tout terrain à tendance minimalistico chépakoi:
 web / organisation / vie pratique / design
+
+**Nom et slogan: Les aspirations coeur - Thrilling and thriving minimalism** 
 
 Projet: "The terrestrial space station"
 boire mon urine avec de l'argile
