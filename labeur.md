@@ -4,7 +4,8 @@ Faudrait vraiment que je bosse pour un truc pour lequel je suis prêt à payer
 Idée boulot très pragmatique:
 Sites web minimalistes design et pérennes via accessibilité
 voir la conf 100 Days of A11y: A Web Designer's Journey to Learning Accessibility ?
-
+=> consultant minimaliste tout terrain:
+web / organisation / lifestyle
 
 Projet: "The terrestrial space station"
 boire mon urine avec de l'argile
