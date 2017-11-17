@@ -6,7 +6,7 @@ voir la conf 100 Days of A11y: A Web Designer's Journey to Learning Accessibilit
 => design studio tout terrain à tendance minimalistico chépakoi:
 web / organisation / vie pratique / design
 
-**Nom et slogan: Les aspirations coeur - Thrilling and thriving minimalism** 
+**Nom et slogan: Coeur - Inclusive, thrilling and thriving minimalism** 
 
 Projet: "The terrestrial space station"
 boire mon urine avec de l'argile
