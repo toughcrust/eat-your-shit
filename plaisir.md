@@ -1,5 +1,7 @@
 # Pain & cherries
 
+Accepter un déplaisir: choix délétère avec des conséquence graves, multiples et cancéreuses: abdiquer pour un truc à la con à des ramifications dingues sur notre capacité à nous battre pour nous réaliser. Je crois qu'on est tous à moitié conscient qu'il n'y a pas de sens à la vie et que c'est très bien comme ça tant qu'on est étonné / émerveillé parce que ce qu'il se passe. Se voiler face au désir (comme je m'empêche de consumer au travers du voyage) c'est là la véritable douleur: là le non sens de la vie devient douloureux. et non pas parce que c'est un non sens mais parce c'est des possibilités de sens qu'on s'empĉhe
+
 Nouvelle note !
 Il faut une bonne raison pour ne pas se laisser dévorer par l'attraction du plaisir !
 Je me suis beaucoup contraint niveau nourriture par ex: ne pas manger ci ou ça parce que j'ai eu incessamment des "retours de batôns"
