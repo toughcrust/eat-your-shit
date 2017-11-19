@@ -6,6 +6,18 @@ Faut-il se programmer ? faut-il des mantras / principes ? Faut-il une une discip
 
 Que des choses avec lesquelles je ne suis pas en phase en permanence (contrairement aux recettes de vie) mais qui ont le pouvoir de m'enflammer.
 
+=> EN FAIT ici je mets les histoires **dans lesquelles je peux m'identifier et me perdre**. Ou il serait plus sain que je ne m'identifie pas trop !!!
+
+hell lot of determinisms: astrology, family, people around me, mood, moon, beliefs about myself, etc ...
+make the incouscious ones conscious ? Sure ! Knowing more about myself is one of the greatest pleasure I know.
+conform to them ? why should I if it makes me less happy ? Why should I do anything that makes me less happy. It always
+comes down to the shear notion of pleasure: I'll take more pain only if it makes me more happy.
+
+=> TRIER PAR DANGEROSITE !!!
+
+I want to die as a beautiful, mature and rare fruit that people can feed on.
+Also, I took little resources to grow and unexpected / ingenious ways.
+
 #### Absence de moyens - Ambitions démesurée
 Nous bâtirons un rêve inespéré, une simplicité d'abondance et de beauté insoupçonnée sur les ruines d'une croyance aveugle dans une fuite en avant technophile, influençable et sourde aux désirs profonds. Au triste et lamentable projet de détruire la terre pour se réfugier en des lieux bien plus hostiles encore  (qui n'est en fait motivé que par le desir prestige) nous puiserons nos ressources dans leurs déchets et leur conneries, nous serons les recycleurs des futurs de merde. Les limitations que l'on s'impose ne font pas de nous des hommes de petite ambition, elles font des nous des hommes dune détermination effrayante.
 
@@ -329,4 +341,7 @@ scared to be alone with myself. What I need to learn (and teach others by doing 
 whenever possible however wherever. By being incarnated in a weirdly distant boy (unknowlingly suffocating every fucking awake time)
 I have a taste of a true separation, loneliness that only I can break. Overcome the fear of hearing no voice but mine.
 
+Je suis:
+aérien dans la fixité: je me mêle j'observe je fais des liens, je réarrange, je simplifie.
+ce que j'aime dans **le détournement** (mérite un chapitre !!): on se retrouve à "tomber" dans le familier. On est surpris de réaliser ce qu'on a sous les lieux, ce qui était latent. Comme faire un voyage à l'autre bout du monde en un instant pour revenir à la maison, avec un oeil neuf cette fois. (Banksy !)
 

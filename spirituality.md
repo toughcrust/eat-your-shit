@@ -284,3 +284,45 @@ Quelle est cette partie sombre ? auto-destructrice ?
 
 Mon blocage le + important spirituellement: est-ce que je désire vraiment le monde que je désire ?
 permaculture, vie de communauté, écologie, tout ça ... Qu'est-ce que j'en ai à faire vraiment ?
+=> ce qui est sûr: je ne trouve pas l'énergie d'être ce que je pense désirer être.
+
+spiritualité:
+souvent pensée en termes de "which rules should I follow ?"
+je pense que c'est mieux de réfléchir à:
+"which seem to be the possible rules ?" et plus important "What rules do I want ?"
+parce que "which rules should I follow ?" est sûrement une question sans fait et doit de toutes façons passer par "What rules do I want ?"
+
+Pourquoi fondamentalement je ne fais pas confianec à la techno / le "progrès" aveugle pour régler les "problèmes de l'humanité" => je crois soit à faire confiance à des mécanismes robustes qui n'ont pas besoin de surveillance / intervantion du tout (la nature par définition) soit une intense et soutenue conscience (qui par définition n'est pas viable, elle doit permettre de trouver des mécenismes naturels). Si la conscience basique des hommes et de façon étendue de la société était satisfaisante, on saurait déjà bien mieux comment gérer ce pour quoi on a en même temps le plus de stimulis et d'intérêts: nous mêmes. Or on passe notre temps à nous lamenter de travailler trop et se lancer à corps perdu dans le travail, on critique les autres pour leur égoisme quand on fait pareil (l'environnement par ex) => ne me dites pas que de base la conscience humaine conduit à "tout va pour le mieux dans le meilleur des mondes".
+
+Intelligence / supériorité / responsabilité
+l'intelligence: voir ce qui est. lié à la conscience: en mangeant différemment je me sens davantage conscient, davantage intelligent.
+je crois à une forme d'intelligence supérieure qui englobe la mienne. Pareil pour la conscience ? même en étant matérialiste, la matière contiendrait elle même le code source d'une intelligence / conscience modèle !! la potentialité de la conscience / intelligence c'est ptet ça dieu.
+tout ça pour dire que je pense:
+1/ qu'il faut se méfier de son intelligence, qu'elle est incomplète et quoiqu'il arrive plus forte co-construite (les solutions technologiques élaborées pour "sauver la planète" je les sens pas)
+2/ que c'est bon de toujours la repousser et qu'au contraire il faut aussi se méfier d'une intelligence supérieure qui nous dépasse => l'avion c'est le progrès, les problèmes liés se résoudront d'eux-mêmes. (merci stefou pour ce topic)
+
+Lien avec les recettes / la dénormalisation
+reconnaitre que nous sommes:
+des animaux
+imparfaits
+contradictoires
+qu'il faut se donner les conditions pour agir décemment
+que nous ne faisons qu'effleurer les choses
+l'intelligence c'est de voir / manifester ce qui est
+
+Je dis que je ne suis que conscience, que mêmes mes pensées sont de l'ordre du corps. Je ne suis que cette chose dans laquelle émerge des objets, comme un écran de cinéma vierge. Mais ça veut que cette chose qui n'est pas moi et qui produit ces pensées est elle-même consciente d'être observée !!?? Si oui que cherche-t-elle à communiquer ? comment peut-elle ? Ca me fait penser au fait de supposer les autrs humains dotés d'une conscience similaire à la notre: on en sait rien et pourtant c'est l'une des choses que l'on ne remet pas en cause ! Donc question perturbante: y aurait-il dans mon corps une conscience qui essaie de communiquer avec la mienne ? split brain => des centres de consciences séparés ou bien une conscience qui n'a plus accès qu'à une partie de la vie pensante ? Dans les intestins: un centre émotionnel qui serait conscient de l'autre ?
+
+You should not dismiss, diregard what you've experienced. As well there is no point in not trying to outgrow it.
+Et quend je parle de ça je pense en particulier à la peur, au fait que je craigne un monde plus horrible qu'il ne l'est.
+Finalement ce n'est pas débile. Mais à quoi bon en rester là ? Parce que la peur ne nourrit essentiellement du fait de ne pas l'affronter justement !
+Jamais je ne pourrai réduire cette peur à néant, mais que sais-je ce qu'elle deviendra si j'étends ma zone de confort ?
+
+L'âme "vit sur terre", s'empreigne de la matière pour apprendre. La logique même, l'intelligence même sont des choses
+que notre conscience entrevoit mais dont elle n'est pas la cause, elle est simplement l'observateur. Ce qui est intrinsèque:
+une traction vers le plaisir, une reconnaissance de ce qui est beau. Se concentrer, être dans l'instant présent pour absorber ce qu'elle observe. Quand on conscientise un travail, c'est fastidieux, long, éprouvant au niveau de la concentration. C'est à ce moment que notre conscience fait son oeuvre, transfère / transcrit un vécu dans un champ de conscience.
+
+Fun et sérieux: puissance 2 dans la force d'impact. L'antonyme du sérieux c'est le rien à foutre
+humour: relâchement des frictions combat mental / esprit
+
+Dans la même veine du "tomber là où l'on est": une expérience mystique / spirituelle je sais pas bien (qui n'est pas la routine en tout cas) est-ce que ce n'est pas "tomber à l'intérieur de soi"
+

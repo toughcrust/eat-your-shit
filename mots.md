@@ -36,3 +36,8 @@ immédiate: ne passe pas par des concepts (esprits, Jésus, les mondes de la kab
 Eureka, I love you, la vérité
 
 le langage associe à un symbole (initialement un son) un ensemble d'émotions. Le sentiment de découvrir une vérité émerge lorsque qu'il y a un "match" entre ce qu'y est présenté par nos sens et la phrase que l'on y associe et que l'on considère comme vraie. Cette phrase est un ensemble de symboles qui mis ensemble font une "requête" au cerveau pour créer une image mentale.
+
+Apprécier l'art:
+Cette structure qui bouge près du centre G. Pompidou: je l'apprécie pas du tout pareil si je sais que l'artiste a toujours été attristé par la fixité des scupltures dans la rue. Savoir d'où il vient je ressens le côté libérateur de l'art. Alors qu'être confronté à une oeuvre qui ne me parle pas: au contraire énervement d'être enfermé dans la futilité présomptueuse d'un autre.
+En même temps: ne pas savoir => créer ses propres interprétations
+

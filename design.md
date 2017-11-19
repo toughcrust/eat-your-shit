@@ -1,5 +1,15 @@
 # Design
 
+Design !
+On se rend compte que poser les bonnes questions c'est essentiel pour aller qque part plutôt que de foncer tête baissée.
+PAR CONTRE TOUT AUSSI IMPORTANT: quelle est l'esprit de là où on veut aller, qu'est-ce qui est cool
+=> à faire en parallèle du questionnement qui est pragmatique (cerveau gauche) faire diverger le cerveau droit.
+=> quelles références pop (musique, film, livre) m'inspirent ?
+=> quelles mémoires je convoque quand je pense à tel projet ?
+=> quels projets similaires m'inspirent. Qu'est-ce que j'ai envie de fourrer dedans
+=> faire un pot pourri désorganisé, libérateur. **Clairement pas des specs, plus un défouloir** !! Doit servir comme ligne directrice de l'esprit du projet
+=> THE SPLIT BRAIN DEFOULOIR parallel design method TM
+
 Ah merde ! qqun l'a dit avant moi
 It’s much more than creating, it’s about understanding your problem so well that the solution is obvious.
 https://uxdesign.cc/questions-ux-designers-should-be-asking-bc9a6ba87a34

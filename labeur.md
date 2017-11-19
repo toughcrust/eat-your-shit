@@ -1,26 +1,9 @@
 Faudrait vraiment que je bosse pour un truc pour lequel je suis prêt à payer 
 
-Idée boulot très pragmatique:
-Sites web minimalistes design et pérennes via accessibilité
-voir la conf 100 Days of A11y: A Web Designer's Journey to Learning Accessibility ?
-=> design studio tout terrain à tendance minimalistico chépakoi:
-web / organisation / vie pratique / design
-
-**Nom et slogan: Coeur / Nu turfu - Inclusive, thrilling and thriving minimalism** 
-
-Projet: "The terrestrial space station"
-boire mon urine avec de l'argile
-faire de la culture à partir de mon caca
-faire un cocon d'isolation
-=> Un truc moitié sérieux moitié ironique sur la conquête spatiale
-=> Entre minimalisme et folie des grandeurs
-=> Entre pragmatisme et superflu total
-=> **Vivre ici et maintenant le défi de la conquête spatiale**
-Que des avantages plutôt que de se préoccuper d'envoyer des fusées dans l'espace (je vois pas en quoi aller sur une planète qui a de toutes façons moins de choses va aider de quelque sorte que ce soit ...)
-Y'a une idée de jeu de rôle, de SF, de mise en situation aussi derrière, etc ...
-
-
 My specialties: be there, listen, question, suggest, digest, synthetize
+
+Contre le productivisme dans le dev, pour une geekerie inventive et épanouissante
+
 
 What I'm driven to especially: downgrade technology. really get to understand and get to work with hi-tech but find easier way to do it. How not not use it !
 
@@ -108,17 +91,6 @@ It's like only play matters in the end and our "serious work stuff" are the real
 Travailler plus pour gagner moins
 Si je m'imagine bosser gratos ça trie tous les trucs que j'ai pas vraiment envie de faire mais qui me motivent pour l'argent. En plus ça permet de s'imaginer sur des choses pour lesquelles on a aucune compétence. Et qque chose pour lequel on est prêt à sacrifier du confort, de la sécurité
 
-### Biz ideas
-
-
-Je suis fasciné par: la profusion spontanée du végétal, survivre éthiquement aux catastrophes qui vont nous tomber sur la gueule (à l'opposé du survivalisme, vivre en pleine nature, pas contre elle), comprendre comment les choses fonctionnent. Mais je suis profondément un citadin.
-Il faut viser plus loin que l'économie circulaire et exploiter carrément la merde qu'on produit. Parce qu'on sait pertinemment qu'on atteint pas les objectifs fixés (dans le meilleur des cas on en atteint d'autres de façon inattendu)
-=> **shit-fed economy**
-
-Les thèmes qui me touchent
-- la consommation comme réel pouvoir de transformation de la société et d l'environnement
-
-
 Attitude idéale dans le boulot
     We basically shouldn't need each other if it's not for bonding
     So I won't help you unless you have a good problem to solve
@@ -136,16 +108,7 @@ Les obsessions des gens
     Moi et mon obsession de faire simple. MOn obsession de bosser dans l'info alors que la tech me désintéresse ...
     => il faut trouver qqun qque chose qui s'opposent à nos obsessions
 
-Domaines qui pourraient me parler:
+à l'école (de la vie):
+- quel métier les gens font penser qu'il ne sont pas fait pour toi ?
+- pour lesquels n'es-tu pas assez intelligent / fort ?
 
-- Valorisation des déjections https://www.lutopik.com/article/les-toilettes-seches-sortent-du-trou
-- Végétaliser la ville / Faire des forêts nourricières
-- Aliments germés / fermentés locaux
-
-Des systèmes naturels ou assimilés pour assurer une profusion du basique, de l'essentiel. Encore plus kiffant si c'est
-quelque chose où à l'heure actuelle on gâche / se gâche (Céline, je pense encore à toi, j'irai te chercherdans les flammes).
-
-Plus dans la geekerie:
-
-- un truc qui m'a toujours tourné en tête: comment faire en sorte de bosser n'importe où: pouvoir écrire un doc à la con en faisant une rando
-- Conversational UI for computer-aided human communication: un mode d'échange sans IA ou l'info est faite pour faciliter le traitement, expliciter mais ou l'humain est au centre. Un bot qui est là pour faire vivre une conversation, la relancer, etc ... (s'inspirer des mails des amoas avec whatmille trucs à faire)

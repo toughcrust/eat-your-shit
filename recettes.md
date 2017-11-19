@@ -19,14 +19,7 @@ Sans se forcer à penser positif, c'est plus un choix du corps qui tente d'influ
 
 J'ai terriblement terriblement besoin de hugs !
 
-Ma super recette d'aujourd'hui:
-- graines germées
-- h. olive + h. lin
-- sauce tamari
-- vinaigre de cidre
-- levure de bière
-C'était satisfaisant comme pain fromage confiote, en juste beaucoup plus léger à avaler.
-=> putain c'est ce genre d'alternative de dingue que je kiffe.
+
 
 commencer une issue "pbs de santé" sur toughcrust:
 - la santé mentale => S'avouer malade ! s'abandonner à la maladie (corps / mental) pour au contraire ne pas se résigner (bien dissocier l'esprit qui lui n'est jamais malade)
@@ -50,28 +43,6 @@ ce vers quoi je tends:
 
 être curieux quant à ses peurs: qu'est-ce qui me terrifie exactement, que se pass-t-il dans mon corps ? qu'est-ce que ça m'empêche de faire. Retourner la chose: être geek de ses peurs, les prendre comme une richesse à exploiter.
 
-## Miam et beurk
-
-refaire une passe sur mon idéal d'alimentation \(de prana à ce que je suis vriment prêt à faire\)
-
-dans les aliments de base cool:
-
-carottes, petits pois, h. olive, beurre, oeufs, sarrasin
-
-racheter de la sauce soja. boire un peu de vin ? concentré de tomates.
-Racheter de l'huile de lin !
-Spiruline: où acheter ?
-
-vers vegan:
-Plus d'umami: balsamique + tamari + épices !
-**flocons de levure pour B12 + satieté**
-
-ébauche / idée de mon régime alimentaire ultra hype:
-chewing liquidarianism => c'est la production de salive qui est ultra nourissante et permet de bien assimiler la nourriture: mâcher à fond et des aliments qui font saliver.
-Sinon: laisser la bouche dicter ce que je dois manger, en quelle quantité et quand
-par exemple là tout de suite si j'écoute mon bide j'ai envie d'un énorme bol de riz, d'une plaquette de choco et de camembert
-si j'écoute ma bouche, j'ai un peu soif, je voudrais un peu de choco et d'une petite quantité d'aliments odorants que je dégusterais lentement. L'idée de se nourrir de senteurs me donne vachement envie de faire fermenter des trucs, des graines germéés, de cultiver des épices / aromates !!
-+ ne manger que lorsque je sens que mon corps en a besoin, pas comme un réconfort
 
 ## Mental recipes
 
@@ -174,7 +145,7 @@ c'est un effort d'y revenir. Je pense qu'on revient toujours au problème de "da
 de faire tellement de choses en parallèles que j'utilise des bonnes grosses ficelles bien bourrines: être sur
 de soi et dans une colère vague sans objet c'est bourrin et efficace"
 
-### Mood disorders. very precisely
+### Switch (mood) case {...}
 
 Are you in danger ? If yes, why the hell are you reading !?
 Else, are you worried ? If yes, what are you worried of **very precisely**(\*) ?
@@ -244,3 +215,37 @@ Plus important que les "dons" avec lesquels on est nés: ce qui nous donne du pl
 C'est notre propre jugement qui est en fait le plus dur à avaler. C'est quand une partie de nous est d'accord avec un jugement extérieur qu'il nous pourrit.
 
 Trouver son plaisir et poursuivre ses aspirations dans les différents niveaux: faits émotions sentiments etc.. rencontrer les autres dans ce que leurs plaisirs et aspirations ont en commun. Dénicher cette infime part d'eux qui semble être soi. Pour l'obtenir il faut réussir à accepter d'être jugé (car on doit se dévoiler), rester sincère.
+
+tout ce que sait faire l'intelligence humaine c'est de l'analyse statistiques. Derrière des réflexions de "haut niveau" (les femmes sont plus sensibles donc moins adaptées aux positions de leadership) il y a en fait un amalgame d'expériences personnelles, de sources externes (amis, on dit, livres, mythologies) pondérées par fiabilité estimée (et biaiser par nos envies / espoirs). Ce serait super utile de connaître l'algo qui fait ça ! pouvoir comparer ntre les gens et pouvoir s'apercevoir de nos biais! Dés qu'on met à jour l'une quelconque de ces sources on s'aperçoit soit même qu'on a un jugement un peu grossier => pour tout sujet important c'est important d'expliciter ce sur quoi on fonde un jugement, et pas des phrases génériques qui essaient de prendre du recul.
+et c'est pourquoi nos avis ne peuvent pas être rigides: les lois sur lesquelles on se base ne sont elles-même pas rigides.
+=> j'aimerais beaucoup être capable d'illustrer dans une vidéo un dialogue entre deux personnes et montrer comment leurs compréhensions se recontrent et s'opposent en fonction de leurs expériences, représentations mentales, focus (illusions, envies, etc..)
+
+sur comment notre cerveau est super fort, super flexible (on fait du big data, de l'ordi quantique en permanence pour éajuster nos décisiosn en fonction de ce qu'il se passe: on réévalue nos choix passés) et pourquoi on peut s'attacher à des principes cons
+"- Ainsi, dites vous, je serais pris de vertiges parce que les solides fondations de passé ont été ébranlées ?
+- Exactement [...] Votre esprit se trouve surmené parce que totalement préoccupé par la reconstitution du passé, et il n'a plus la capacité d'accomplir son travail normal - comme de prendre soin de votre équilibre. Le problème Spinoza."
+
+Un peu comme la joie, c'est super agréable de se balader dans la rue, d'être au boulot et de se dire qu'on aime tout le monde.
+Ca dure pas et ça nécessite un effort pour y revenir. Et on doute. PArce que c'est sain d'être en colère contre les autres des fois et que ça paraît contradictoire.
+Peut on simplement garder à l'esprit "Je t'aime mais là tu fais de la merde, Je t'aime mais là tu es un danger pour moi." Et pourquoi de base les aime-t-on ? parce que y'a rien de plus ouf que de ressentir un plaisir partagé avec qqun d'autre. Don de base je les accueille (== j'aime) pour faire émerger ce plaisir partagé. "Je t'aime mais tu es con" => ça me déploie dans mon entiereté, dans mes contradictions, dans mon besoin de respect et de rejet de l'autorité.
+La grande difficulté de la pensée humaine: GARDER A L'ESPRIT !! parce que ça part ça s'envole, trop de choses à penser. Et donc on se normalise, nous-mêmes, par rapport aux autres etc ...
+
+dans la discussion avec soi ou les autres: toujours utile et enrichissant de déployer sa pensée à "voix haute" sans honte (et en se laissant même la possibilité d'exprimer ses réticences à surpasser sa honte), sans chercher à cacher les pistes mal dégrossies / moins séduisantes / contradictoires. Bref tout déployer comme un plan avant l'attaque, jouer cartes sur tables. Seul moment où on ne veut pas faire ça: quand on pense que l'autre n'est pas en mesure de respecter une telle honnêteté
+
+quand on peut fierté et honte sont mieux servis par cool / pas cool.
+L'humilité n'existe pas. Mais c'est tellement mieux (plus cool) de célébrer la coolitude de qque chose devenu possible dont on a pris plus ou moins part que de célébrer un truc qui est censé en être la source mais pas vraiment en fait.
+
+Note santé mentale:
+à partir du moment où on est confiant sur le fait de ne pas se saboter => on peut "s'abandonner", se battre contre la maladie en s'en détachant. /!\ aux sabotages que l'on croit subtiles comme dans les relations inter personnelles mais qui en fait ne le sont pas du tout: rechigner à faire quelque chose, même ne pas le faire de tout son coeur c'est du sabotage. Moi ne pas me donner les moyens en <3 c'est du sabotage. Ce que je ne sais pas: pourquoi ?
+
+A lier au chapt sur le plaisir
+plan for abundance
+restrict for unrestriction: des fèves de cacao à décortiquer (faire germer même ?)
+rejoint l'idée d'un corps libéré du mental par l'esprit qui sent de façon plus subtil ce qui est bon ?
+
+Recette supa importante pour la productivité / motivation / organisation:
+DES que j'ai une idée ça me paraît super important de commencer directement à la "mettre sur papier". Même si c'est dimanche et
+que c'est pour le boulot, faire l'exact minimum qui étacnhe on besoin de développer cette idée. Donc ça peut être juste écrire une phrase.
+Et du coup s'arrêter quand j'en ai marre de passer du temps dessus.
+Ca rend "vaincre la résistance" ULTRA FACILE en fait puisque qu'on transforme ça en "céder à la tenatation de vraiment réfléchir
+à un défi qu'on veut s'imposer". Et finalement à la limite le soucis n'est plus de vaincre la résistance mais (peut être)
+de réussir à retrouver une forme d'incativité reposante si le besoin s'en ressent.

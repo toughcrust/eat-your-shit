@@ -1,5 +1,5 @@
-Beware of shortcuts which are short circuits
-============================================
+Beware of shortcuts which are actually short circuits
+=====================================================
 
 LE drame dans les relations humaines
 Ce qui est beau: dans limplacable isolation de sa vie et de ses fourmillements, trouver des échos chez quelqu'un d'autre.
@@ -250,3 +250,39 @@ Autre thème qui me tient à coeur: le voyage compulsif VS créer la spontanéit
 monnaie alternative: les gens mettent ce sur quoi ils ont aidé et en échange ils peuvent emprunter plus ou moins ?
 > j'ai aidé mamie à ça, j'ai bossé à un inventaire, j'ai fait des animations pour des handicapés
 Note: j'ai énormément réfléchi à commnt rendre le échanges financiers plus humains, les rééquilibrer au profits des actions qui profitent à tous. Mais je trouve rien qui me convainc. En dehors de l'incitiatif / coercitif, il y a beaucoup plus à faire sur un travail individuel de "mes kopecs ont une grande influence sur la marche du monde"
+
+Sur l'état, la discrimination positive, la différence entre parler et agir (entre initier un mvt de l'intérieur ou changer le monde extérieur pour évoluer):
+avant j'étais intimement convaincu que seul le fait d'agir avait de la valeur pour "changer" les choses, que ça doit venir de l'intérieur et de chacun.
+maintenant je pense que l'équilibre des deux est essentiel.
+L'état par exemple doit être le reflet de nos aspirations les plus nobles (peine de mort, avortement, revenu universel) mais il faut toujours un travail d'acceptation individuel.
+
+Mettre une note sur la monnaie:
+J'ai un vrai problème de design là dessus:
+en même temps j'aimerais me défaire de l'argent en même temps je me révèle angoissé et conservateur à ce sujet.
+en même temps je m'excite régulièrement au sujet de réformer la façon dont fonctionne le crédit, en même temps toute
+solution technique que je peux imaginer m'ennuie et je la trouve in fine ridicule ... C'est que j'ai l'espoir qu'une sol.
+non technique rende la répartition des richesses plus juste.
+=> faire admonition "warning"
+
+Tu prends pas l'avion, t'es contre le progrès ?
+Cette question a trop de sous-entendus / d'implications / de flous sur les définitions ! Ca me prendrait des mois à répondre correctement à cette question et pas sûr que je réponde à ce qui t'intéresse vraiment.
+mais déjà: c'est quoi le progrès pour qui pour quoi ? progrès pour aller plus loin plus vite: oui. progrès pour la qualité de l'air: probablement pas. est-ce que le problème se résoudra seul forcément ? j'en sais rien. Est-ce que je peux y faire quoi que ce soit ? j'en sais rien non plus. Est-ce que je me sens responsable ? oui. Est-ce que je dois me sentir responsable ? aucune idée. Est-ce que je devrais être psychanalyste ? oui :D.
+
+ce qui m'énerve dans les geeks pour qui l'info est la réponse à tout:
+tout ce qu'on sait faire sur ordi c'est "juste" (mais c'est déjà beaucoup) une caisse de résonance du cerveau gauche. Et encore il manque
+cette chose essentielle sur laquelle il est dur de réfléchir: notre capacité à évaluer notre propre manière de construire des raisonnments.
+l'humain aura toujours une plus value tant que:
+- l'ordi n'est pas dans la capacité d'itérer sur ses raisonnments
+- n'a pas un cerveau droit (synthèse et intuition)
+- de façon ultime une notion de plaisir qui le guide dans la création
+
+tout ce qu'on a pour l'instant ce sont des machines qui singent avec une excroissance de cerveau gauche
+
+est-ce que je veux de la croissance ? je sais pas si croissance c'est bien. De l'épanouissement oui ! Faut-il réfréner ses ardeurs dans l'épanouissement ? bien par définition non puisque épanouissement = ce qui nous apparaît comme meilleur. Dans mon cas personnel l'épanouissement semble passer beaucoup par la capacité à comprendre, digérer et simplifier les choses qui me sont essentiels mais qui me gênent. D'une certaine manière je vois mon épanouissement comme une mise à disposition de plus de matériel à ma conscience: comme si par exemple j'essayais de percevoir les pensées de mon second cerveau dans mes intestins. Plus d'intelligence d'une certaine manière, avec l'idée que l'intelligence est la faculté de visualiser les liens entre les choses.
+Je pensais à cette question de la conscience pour les left-brainists (le monde c'est du code): à se focliser exclusivement sur cette activité ils ont en fait réduits leur vision du monde et ne voient son développement que dans cette perspective.
+
+La xénophobie c'est pas de la peur de l'autre. C'est la peur que les marqueurs visibles d'un certain type de population
+deviennent en fait des marqueurs de pouvoir ! la peur des noirs et de leur grosse teub, d'une religion dominante comme filtrant à l'accession aux ressources. la peur de la religion musulmane qui est une religion très politique. Les bouddhistes sont apolitiques. La religion catho en france est largement acceptée par les laïques car elle n'a pas la main sur les ressources et n'essaie pas. La forme la plus extrême de la xénophobie c'est quand les marqueurs d'une population sont sur-interprétés / souvent complètement inventés. Pour des raisons diverses dont l'une des plus nocives est le non sentiment d'appartenance: à partir de là, le rejet d'une partie de la population est une forme détournée de s'inclure.
+
+j'aime pas la compét qui détruit: partir en voyage à l'autre bout du monde
+Je kiffe la compét où on apprend en route: la course à pied. Et quoiqu'il arrive on a sa dose d'endorphines

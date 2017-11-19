@@ -5,6 +5,10 @@ A foutre qque part:
 
 _Prout_
 
+Je crois de plus en plus que l'intriduction est ce qu'on a facilement envie de bâcler mais que c'est un secret de patience
+efficace sur la durée (et parfois bien plus vite qu'on ne le crois). Juste faire une intro en mode robot "mon prof me l'a demandée"
+c'est useless.
+
 Titres / sous-titres envisagés pour ce bouquin:
 - Nique ta merde
 - Good stuff without the bad stuff
@@ -29,6 +33,12 @@ Cautionary notes from the author:
   I need not fearful guidance but guidance to sublimate fear
 
 **_(\*) courtesy of 104 et sûrement un peu de Yoda_**
+
+Un autre truc qui me perturbe dans l'idée de faire ce recueil de pensée: je le vois comme une façon de poser ma pensée
+pour éviter de tourner en rond et avancer (un échaffaudage quoi) mais en même temps je prends quasi jamais la peine
+de vraiment me lire. Je me survole moi même. Ca veut dire que c'est pas assez bon ? que lavraie utilitéest d'écrire, de se souvenir
+grossièrement en survolant et de reconstruire une nouvelle pensée fraîche ou alors que je devrais faire un petit effort
+initial supplémentaire d'attention (comme quand on prend le temps de lire une doc / des consignes avant de se lancer) ?
 
 ## Trying to be honest about writing this stuff
 
