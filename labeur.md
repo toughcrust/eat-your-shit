@@ -1,3 +1,5 @@
+Ce qui est complètement cassé dans le travail moderne: on ne comprend nous mêmes pas en quoi les boulots à la con qu'on fait sont utiles et pourtant c'est ça qui nous assure un toit et de la bouffe !!
+
 Coding project manager:
 pour ne pas être déconnecté de la réalité comme un politique
 => En profiter pour "play dumb" => rester en capacité à accueillir des nouveaux et rester simple.

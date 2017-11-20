@@ -162,6 +162,13 @@ Ma vie se résume pour sûr à ces prochaines 24h. Ce qui m'occupe donc dans l'i
 - Le basique du basique pour survivre. Est-ce que j'ai même besoin de penser à manger ?
 - Abandonner tout ce qui n'est pas de l'ordre du kiff massif pour se concentrer sur LE truc que je veux réaliser
 
+=> alors 24h pas forcément adapté pour tout. Echelle de temps pour s'inquiéter: 
+Avoir un toit: 6 mois
+Avoir à manger: 1 semaine
+S'assurer qu'on a dit aux gens ce qu'on avait envie de leur dire (typiquement "je t'aime") => 24h
+Avoir mis ses projets dans un draft: 24h
+
+
 ### Le couple tantrique
 
 http://www.pascalmartelli.com/couple-tantrique/
