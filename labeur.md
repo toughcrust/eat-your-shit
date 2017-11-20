@@ -2,7 +2,7 @@ Ce qui est complètement cassé dans le travail moderne: on ne comprend nous mê
 
 Coding project manager:
 pour ne pas être déconnecté de la réalité comme un politique
-=> En profiter pour "play dumb" => rester en capacité à accueillir des nouveaux et rester simple.
+=> En profiter pour "play dumb" => rester en capacité à accueillir des nouveaux et rester simple. Ecrire / décrire / tout dessiner. Etre un insider.
 
 Faudrait vraiment que je bosse pour un truc pour lequel je suis prêt à payer 
 
