@@ -1,3 +1,7 @@
+Coding project manager:
+pour ne pas être déconnecté de la réalité comme un politique
+=> En profiter pour "play dumb" => rester en capacité à accueillir des nouveaux et rester simple.
+
 Faudrait vraiment que je bosse pour un truc pour lequel je suis prêt à payer 
 
 My specialties: be there, listen, question, suggest, digest, synthetize
