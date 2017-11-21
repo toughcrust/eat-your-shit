@@ -1,5 +1,11 @@
 # La joie: ivre de recettes
 
+à mélanger dans une méditation / relaxation qui me ressemble vraiment:
+- l'insulte
+- le souffle profond
+- l'acitivité mentale qu'on amène au rythme du souffle mais qu'on essaie pas d'ignorer. Voir on se concentr encore plus dessus
+- la sensation de laisser des fluides entre et sortir en plusieurs endroits du corps 
+
 Choses qui apportent un surplus d'énergie:
 - manger
 - faire du sport
