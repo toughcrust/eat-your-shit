@@ -1,5 +1,13 @@
 # Les recettes !
 
+Choses qui apportent un surplus d'énergie:
+- manger
+- faire du sport
+- se sortir les doigts du cul et faire ce qu'on pense utile
+- montrer aux autres qu'on les aime sans attendre en retour
+
+=> classés par ordre croissant de coolitude: - de ressources, + d'effet kisscool sur le long terme. Là dedans vient aussi "The holidays feeling" 
+
 #### The holidays feeling
 Quand je prends une douche froide
 Quand je sors de moi même pour parler avec enthousiasme 
