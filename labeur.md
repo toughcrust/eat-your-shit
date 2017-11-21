@@ -1,3 +1,5 @@
+C'est super agréable d'avoir une TODO liste ultra raisonnable et de se dire qu'on se garde 1h de boulot pour faire un truc qui nous tient à coeur et qui n'est pas essentiel. Finalement y passer 2h parce que c'est cool.
+
 Ce qui est complètement cassé dans le travail moderne: on ne comprend nous mêmes pas en quoi les boulots à la con qu'on fait sont utiles et pourtant c'est ça qui nous assure un toit et de la bouffe !!
 
 Coding project manager:
