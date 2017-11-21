@@ -9,5 +9,5 @@
 * [Incarnations ~ incantations](viviter.md)
 * [Plaisir](plaisir.md)
 * [Tartines de labeur](labeur.md)
-* [Ivre de recettes](recettes.md)
+* [Mental: recettes](recettes.md)
 

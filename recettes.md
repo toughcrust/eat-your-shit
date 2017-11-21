@@ -1,4 +1,4 @@
-# Les recettes !
+# La joie: ivre de recettes
 
 Choses qui apportent un surplus d'énergie:
 - manger
