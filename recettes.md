@@ -1,5 +1,10 @@
 # La joie: ivre de recettes
 
+Vivre son utopie:
+ça va plus loin que de lutter contre "l'effet goutte d'eau dans l'océan".
+C'est qu'en fait sinon t'es pas prêt à profiter de ce que t'espères (tu ne sais même pas ce que c'est en fait !) et encore moins capable de t'apercevoir ce qui existe, est à ta portée et te convient encore plus.
+Comme dans le dev: tout un monde entre inventer une app et la faire 
+
 à mélanger dans une méditation / relaxation qui me ressemble vraiment:
 - l'insulte
 - le souffle profond
