@@ -1,5 +1,7 @@
 # La joie: ivre de recettes
 
+Let us dare following our own ways. I am looking forward to cross your path 
+
 Vivre son utopie:
 ça va plus loin que de lutter contre "l'effet goutte d'eau dans l'océan".
 C'est qu'en fait sinon t'es pas prêt à profiter de ce que t'espères (tu ne sais même pas ce que c'est en fait !) et encore moins capable de t'apercevoir ce qui existe, est à ta portée et te convient encore plus.
