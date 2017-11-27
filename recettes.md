@@ -1,5 +1,9 @@
 # La joie: ivre de recettes
 
+sur les bonnasses:
+Y a pas mieux à faire que de faire semblant d'être cool alors que on est à fond? Genre t'y es absolument pour rien hein mais c'est un plaisir de te regarder et d'essayer de décrypter ce qui est la source du plaisir. Je sais pas pour toi mais moi j'aimerais que ça impacte aussi peu que possible ma façon d'interagir avec toi en dehors de ce que ça semble appeler: du SEXE
+
+
 Let us dare following our own ways. I am looking forward to cross your path 
 
 Vivre son utopie:
