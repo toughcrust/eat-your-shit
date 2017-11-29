@@ -1,5 +1,7 @@
 # Ici, vous êtes (*)
 
+voir d'où ça vient "If nothing else works, a total pig-headed unwillingness to look facts in the face will see us through…"
+
 A foutre qque part:
 > Le véritable voyage de découverte ne consiste pas à chercher de nouveaux paysages, mais à avoir de nouveaux yeux.
 
