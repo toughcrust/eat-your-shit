@@ -1,5 +1,9 @@
 # Ici, vous êtes (*)
 
+Dans le lien entre plaisir santé mentale et spritualite: éprouver de plus en plus de désir d'admiration et de plaisir à se côtoyer soi même.
+Et s'ouvrir pour aspirer le meilleur du monde ext
+Seul cosmogonie qui ait un sens pour moi: nous sommes des créateurs de monde qui expérimentent.
+
 voir d'où ça vient "If nothing else works, a total pig-headed unwillingness to look facts in the face will see us through…"
 
 A foutre qque part:
