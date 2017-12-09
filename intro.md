@@ -122,10 +122,6 @@ Plus les moyens d'atteindre un but sont proches de l'esprit du but, mieux c'est:
 **No crap in the first place**
 Vivre selon ses propres règles / dans sa propre utopie (a minima honnêteté radicale). Après je n'en ai rien à faire si ça ne se passe pas comme je le rêve. Je n'abandonne rien de ce qui est important, mais je me fous de ce que je ne maîtrise pas (Et qu'est-ce que je maîtrise ?).
 
-## The english part of it
-
-Looking for stuff in English makes it the langage you tie the emotion / knowledge associated to
-
 ## Dialog with myself
 
 Is there a meaning to life ?
