@@ -1,7 +1,7 @@
 # Summary
 
-* [Introduction](README.md)
-* [You dare here](intro.md)
+* [La page qui sert à rien](README.md)
+* [Meta introduction](intro.md)
 * [Dénormalisation](denormalization.md)
 * [Language](mots.md)
 * [Design](design.md)
