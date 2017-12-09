@@ -1,5 +1,5 @@
-Du raccourci au court-circuit
-=============================
+Du raccourci au court-circuit y'a qu'un pas 
+===========================================
 
 LE drame dans les relations humaines
 Ce qui est beau: dans limplacable isolation de sa vie et de ses fourmillements, trouver des échos chez quelqu'un d'autre.
