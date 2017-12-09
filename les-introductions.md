@@ -1,4 +1,4 @@
-# 🎉 Les introductions ! (fiou, enfin ...)
+# 🎉 Les introductions ! (fiou, enfin ...) rah merde il parle de lui
 
 ## Ecrire et se lire
 
