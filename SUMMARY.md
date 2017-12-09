@@ -10,5 +10,4 @@
 * [Incarnations ~ incantations](viviter.md)
 * [Plaisir](plaisir.md)
 * [Tartines de labeur](labeur.md)
-* [Les introductions !](les-introductions.md)
 
