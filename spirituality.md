@@ -326,3 +326,7 @@ humour: relâchement des frictions combat mental / esprit
 
 Dans la même veine du "tomber là où l'on est": une expérience mystique / spirituelle je sais pas bien (qui n'est pas la routine en tout cas) est-ce que ce n'est pas "tomber à l'intérieur de soi"
 
+Dans le lien entre plaisir santé mentale et spritualite: éprouver de plus en plus de désir d'admiration et de plaisir à se côtoyer soi même.
+Et s'ouvrir pour aspirer le meilleur du monde ext
+Seul cosmogonie qui ait un sens pour moi: nous expérimentons ce que nous avons d'abord imaginé.
+

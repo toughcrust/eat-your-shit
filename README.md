@@ -1,4 +1,6 @@
-**Quoi que c'est ?** 
+#### Overthink and let come / Se casser le cul et et laisser viendre
+
+**Quoi que c'est ?**
 Principalement mon manuel de _"self / life hacking"_ à tendance minimalistico-convivialiste.
 
 **Et aussi**

@@ -1,5 +1,5 @@
-Beware of shortcuts which are actually short circuits
-=====================================================
+Du raccourci au court-circuit
+=============================
 
 LE drame dans les relations humaines
 Ce qui est beau: dans limplacable isolation de sa vie et de ses fourmillements, trouver des échos chez quelqu'un d'autre.

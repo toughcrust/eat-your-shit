@@ -1,6 +1,6 @@
 # J'ai compris tous les mots
 
-J'ai bien compris merci.
+J'ai bien compris céline.
 
 ## Langage et structuration
 L'H / je ne réfléchis bien que sur ce que je peux manipuler / expérimenter / hacker. Le language n'est pas la réflexion mais il offre (encore plus avec l'écriture)
