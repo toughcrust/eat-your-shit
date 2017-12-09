@@ -1,6 +1,4 @@
-# 🎉 Les introductions ! (fiou, enfin ...) rah merde il parle de lui
-
-## Ecrire et se lire
+# 📖 Se dire et se lire
 
 J'écris beaucoup de trucs et je les lis pas moi-même, c'est perturbant. Ca me fait penser à ces gens qui rêvent d'être une
 "star" et se foutent dans quel domaine pourvu qu'on les aime. Après, ça paraît logique: pourquoi ce qu'on souhaite apporter
@@ -20,7 +18,7 @@ _Hmmmhmm ... Ok ... j'ai déjà lu ça 100 fois, c'est une idée juste effleuré
 au mieux pour l'évacuer. Mais celui / celle qui l'a écrite n'a pas pris la peine de traduire en termes universellement
 intelligibles ce qu'il a ressenti. Il a accouché d'une coquille vide._
 
-## Opening up to intimate drives
+## 💛 Opening up to intimate drives
 
 ### La théorie
 
