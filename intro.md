@@ -34,7 +34,7 @@ maintenant, à notre portée mais apparemment immuable. Le même phénomène vu 
 
 > Le véritable voyage de découverte ne consiste pas à chercher de nouveaux paysages, mais à avoir de nouveaux yeux.
 
-## L'introduction pénétrante
+## L'introduction pénétrante et permanente
 
 Dans une bonne introduction, tout est dit: la "solution", le reste de l'exposé coule de source.
 C'est un travail continu, vivant. **C'est le point de départ réel que l'on découvre à l'arrivée.
