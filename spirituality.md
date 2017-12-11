@@ -2,7 +2,7 @@
 
 On recherche la chaleur: amour, humour, confort. toute la vie est une co-création pour savoir créer la chaleur à partir du froid / du vide. **Create warmth**
 
-
+ce qui m'intéresse: faire le lien entre les aspirations, la rélaité du corps, la pensée logique, l'intuition
 
 A caser: l'âme qui s'attache à des fractales de matière
 
