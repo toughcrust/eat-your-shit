@@ -1,3 +1,5 @@
+Super important à développer. Dans le processus de comprendre et décider il se passe d'abord une intellectualisation de la chose puis le flambeau est passé au corps qui "stocke" le résultat. Mais les deux ne parlent pas exactement le même language. Là où l'esprit est capable de manipuler des tournures négatives sans que ça le rende triste, le corps se trouve limité dés lors qu'une injonction est de type "ne pas". D'ailleurs toute injonction le rend malheureux. D'où ma conviction que je suis un peu obligé de "croire en tout" pour ne pas me retrouver dans une situation où les frictions gâchent la vie, pire l'empêche. Il faut donc travailller ç communiquer avec son corps. Je crois que c'est ce que je fais quand je relis un truc, que je ne le sens pas et que je le remâche jusqu'à ce qu'il résone mieux. 
+
 ## Strippin' bloggers
 
 voir d'où ça vient "If nothing else works, a total pig-headed unwillingness to look facts in the face will see us through…"

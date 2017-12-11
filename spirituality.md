@@ -1,5 +1,9 @@
 # My very own indie sprirituality
 
+On recherche la chaleur: amour, humour, confort. toute la vie est une co-création pour savoir créer la chaleur à partir du froid / du vide.
+
+
+
 A caser: l'âme qui s'attache à des fractales de matière
 
 warning: toujours pas de volonté d'avoir LA vérité, juste poser des trucs, approfondir et avoir un "mieux qu rien" quand nécessaire
