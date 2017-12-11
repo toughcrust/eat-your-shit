@@ -1,6 +1,7 @@
-# Ici, vous êtes (*) / You dare here
+# Ici, vous êtes (💥) / You dare here 🎉
 
-_(\*) courtesy of 104 Paris et sûrement un peu de Yoda_
+
+_(💥) courtesy of 104 Paris et sûrement un peu de Yoda_
 
 > **[warning] Cautionary notes from the author**
 
@@ -15,8 +16,6 @@ _(\*) courtesy of 104 Paris et sûrement un peu de Yoda_
 > **[success] But do not fear, you're in good company ;)**
 
 > I need not fearful guidance but guidance to sublimate fear
-
-# 💥 Intoductions aux introductions 🎉
 
 ## We got a problem sir
 

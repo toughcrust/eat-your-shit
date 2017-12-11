@@ -1,9 +1,9 @@
 # Summary
 
 * [La page qui sert à rien](README.md)
-* [Intro: méta](intro.md)
-* [Intro: coucou c'est moi](les-introductions.md)
-* [Intro: épistémo ](intro-epistemo.md)
+* [Check et méta](intro.md)
+* [Moi moi moi](les-introductions.md)
+* [Le point épistémo ](intro-epistemo.md)
 * [Dénormalisation](denormalization.md)
 * [Language](mots.md)
 * [Design](design.md)
