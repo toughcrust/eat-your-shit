@@ -1,6 +1,6 @@
 # My very own indie sprirituality
 
-On recherche la chaleur: amour, humour, confort. toute la vie est une co-création pour savoir créer la chaleur à partir du froid / du vide.
+On recherche la chaleur: amour, humour, confort. toute la vie est une co-création pour savoir créer la chaleur à partir du froid / du vide. **Create warmth**
 
 
 
