@@ -1,5 +1,7 @@
 # Design nuts
 
+Les personas: en faire des vrais. Rien d'inventer: des photos de gens, de citations d'ux, des observations. avec l moins de jugements possible. à la strip-tease
+
 Design !
 On se rend compte que poser les bonnes questions c'est essentiel pour aller qque part plutôt que de foncer tête baissée.
 PAR CONTRE TOUT AUSSI IMPORTANT: quelle est l'esprit de là où on veut aller, qu'est-ce qui est cool
