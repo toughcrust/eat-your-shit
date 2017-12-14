@@ -1,6 +1,11 @@
 Du raccourci au court-circuit y'a qu'un pas 
 ===========================================
 
+ce que j'apprends beaucoup en ce moment:
+ON doit compresser les infos, les simplifier, les mettre sur une dimension
+on a pas trop le choix. Bien le faire est un travail / re-travail harassant
+et en plus faut réussir à le défaire
+
 LE drame dans les relations humaines
 Ce qui est beau: dans limplacable isolation de sa vie et de ses fourmillements, trouver des échos chez quelqu'un d'autre.
 Le drame: ne pas se rendre compte que c'est ça qu'on peut raisonnablement désirer. Puis avoir des a priori sur comment y arriver ce que ça doit être. Avoir peur de ne pas y arriver. 
