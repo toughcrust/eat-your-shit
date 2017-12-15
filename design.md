@@ -1,5 +1,7 @@
 # Design nuts
 
+le type de design auquel je réfléchis: celui où c'est un peu la merde, mais ou on a déjà un manière de fonctionner.
+
 Les personas: en faire des vrais. Rien d'inventer: des photos de gens, de citations d'ux, des observations. avec l moins de jugements possible. à la strip-tease
 
 Design !
