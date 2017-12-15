@@ -92,3 +92,5 @@ That's another way to say: if you're given a meaning to life, or more accurately
 I sometimes feel life and what come after may be influenced by what you believe. Its boundaries are drawn as you go forward, like in a video game.
 
 Talking about video games, would you play for long an easy game that does not challenge your abilities, blow your mind ? I think that's the same for life
+
+Le sens de la vie c'est de trouver nos courants d'âme soeurs. Quand j'étais avec Emilie, il y avait ces moments où l'on était joyeux comme des gosses, profonds en même temps, se renforçant mutuellement l'un l'autre dans notre conviction que l'on s'aime soi même. Cette joie de se savoir apprécié pour ce qu'on aime soi même chez soi. Et pourtanton était en opposition totale sur d'autres sujets. Pourquoi tout rejeter en bloc. Une partie de moi était en osmose avec une partie d'elle. C'et kiffant comme vision: **go with the flow**, mais de manière extrêmement personnelle en fait
