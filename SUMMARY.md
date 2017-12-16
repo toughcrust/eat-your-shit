@@ -4,7 +4,7 @@
 * [Check et méta](intro.md)
 * [Moi moi moi](les-introductions.md)
 * [Le point épistémo ](intro-epistemo.md)
-* [Dénormalisation](denormalization.md)
+* [Oui aux circuits courts](denormalization.md)
 * [Language](mots.md)
 * [Design](design.md)
 * [Indie spirituality](spirituality.md)
