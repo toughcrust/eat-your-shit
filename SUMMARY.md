@@ -1,7 +1,7 @@
 # Summary
 
 * [La page qui sert à rien](README.md)
-* [Check et méta](intro.md)
+* [Check-in et méta](intro.md)
 * [Moi moi moi](les-introductions.md)
 * [Le point épistémo ](intro-epistemo.md)
 * [Oui aux circuits courts](denormalization.md)
