@@ -1,5 +1,7 @@
 # Va, vis, deviens !
 
+Suivre les courants intimes: go with you fl(o/a)ws
+
 Ouais, ouais, certes ... Mais **qui, quoi, comment ?** j'ai envie de te dire !
 
 Faut-il se programmer ? faut-il des mantras / principes ? Faut-il une une discipline ou au contraire se relâcher ? Tout retenir, tout oublier, se contredire ou s'entêter ?

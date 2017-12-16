@@ -1,5 +1,10 @@
 # Design nuts
 
+à mettre dans les méthodes de design:
+ce truc que j'avais réussi à faire pour faire un retour objectif:
+me départir de toute analyse des pensées qui m'arrive pour faire un retour sans filtre mais sans méchanceté
+parce que rien ne passe au fltre de l'analse poussée, ça passe juste pour
+
 le type de design auquel je réfléchis: celui où c'est un peu la merde, mais ou on a déjà un manière de fonctionner.
 
 Les personas: en faire des vrais. Rien d'inventer: des photos de gens, de citations d'ux, des observations. avec l moins de jugements possible. à la strip-tease
