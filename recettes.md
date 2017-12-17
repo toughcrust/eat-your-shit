@@ -3,6 +3,7 @@
 sur les bonnasses:
 Y a pas mieux à faire que de faire semblant d'être cool alors que on est à fond? Genre t'y es absolument pour rien hein mais c'est un plaisir de te regarder et d'essayer de décrypter ce qui est la source du plaisir. Je sais pas pour toi mais moi j'aimerais que ça impacte aussi peu que possible ma façon d'interagir avec toi en dehors de ce que ça semble appeler: du SEXE
 
+à mettre dans "projects" sûrement: `Un-mindful VS mindful ingestion of potent food` => la différence entre s'engouffrer des dattes / du chocolat et déguster en laissant ce truc bizarre se passer en bouche (douleur, salivation intense, désir intense du shoot suivant) me paraît fondamentale. D'un côté on dompte la puissance, de l'autre on la laisse nous détruire de l'intérieur.
 
 Let us dare following our own ways. I am looking forward to cross your path 
 
