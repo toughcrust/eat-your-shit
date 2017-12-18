@@ -44,7 +44,7 @@ dans ce qui nous a propulsé au départ, nos moteurs.**
 A titre personnel, j'ai toujours du mal à le faire (ça demande un effort initial) mais je crois fermement à la puissance
 de s'introduire, se ré-introduire comme la voie la plus directe (le seule ?) vers une évolution / réflexion personnelle.
 
-## Les meta-données (*) envisagées pour ce "bouquin"
+## Les meta (*) envisagées pour ce "bouquin"
 
 _(\*) Mais ta mère avec tes meta_
 
@@ -58,7 +58,7 @@ que je tiens à garder parce qu'ils apportent leur nuance:
 - `CR_vidange_cerveau_2017-11.docx`
 - SEO optimized self development definitive guide
 - L'étron et le nian nian
-- Dé-troc ton zen
+- Dé-troc ton zen (n'oublie pas de contre-péter)
 - Nan mais on marche sur l'eau là
 - "story of my no life" (cassedédi à mon brollègue N.)
 

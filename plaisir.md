@@ -1,5 +1,10 @@
 # Pain & cherries
 
+choses qui m'épanouissent: 
+- conseiller les autres en m'ouvrant intimement
+- explorer à fond et de manière ultra réaliste une idée pour aller à contre courant de ce qui se fait puis lâcher et passer
+  à autre chose. En discuter à un barbeq végé avec un verre de vin
+
 Plaisir ou désir ? But de la vie: éprouver de plus en plus de désir pour soi même et le monde qu'on essaye de créer. Ne va pas contre le désir physique envers soi même mais le désir envers le courage et l'honnêteté est encore plus vif.
 
 Rien de déraisonnable dans colère / dépression. Juste si tu peux t'en passer tu vas avoir une vie plus profonde.
