@@ -1,5 +1,7 @@
 # My very own indie sprirituality
 
+Nous sommes des marionettes d'une conscience primordiale qui nous  soudainemet laissé notre liberté. Nous nous conformons à ce que nous observons chez ceux dont nous savons qu'ils sont issus de ce même principe de plaisir fondateur. C'est notre zone de confort. Dans cette zone de confort, le désir créateur étouffe et cherche à s'exprimer. Pourras-tu devenir créateur de (ta) vie, prendre la pleine responsabilité de tes mouvements, étendre ta conscience jusqu'où tes envies te poussent ?
+
 Les courants d'âmes: on retrouve des parts de soi dans les autres. Mais des courants de nature différentes les parcourt,
 de même en nous. La conscience observe passer ses forces qui poussent le corps, l'empêchent, s'allient ou se détruisent.
 Cherche à capter / accaparer la conscience pour se réaliser pleienement. Notre âme là dedans ? cette chose indéfinissable
