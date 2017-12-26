@@ -56,3 +56,4 @@ L'incofort du voyage, de l'effort sportif, du défi sont des "douleurs" qui rend
 Le plus gros problème qui est un peu moteur de toutes ces reflexions c'est qu'une fois qu'on a appris que le plaisir c'est tout ce qui compte, qu'on peut très facilement s'auto illusionner / être influencé sur le plaisir qu'on recherche, il reste que des fois la sensation de plaisir ne vient pas quand on pense qu'elle devrait. Que faire dans ces cas là ?
 
 Mark manson: le plaisir d'en avoir rien à faire
+"Caring" psychologically happens when you don't actually take care right away.
