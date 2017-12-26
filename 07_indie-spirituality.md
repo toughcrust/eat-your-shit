@@ -1,5 +1,7 @@
 # My very own indie sprirituality
 
+
+
 Humour, Amour pour ce qui est à l'intérieur de soi et résone chez les autres
 Maïeutique de ce qui est en soi: créer de la joie ou s'ouvrir à une souffrance
 Lien avec la souffrance: la débarrasser de sa superficialité pour la révéler dans sa pureté, dans la dualité qu'elle entretient
@@ -11,6 +13,8 @@ EN TOUT CAS => toute cosmogonie est intéressante quand elle nous aide à voir c
 j'ai juste besoin de matérialiser la scuplture de moi même.
 
 ## A bonne distance de l'écran
+
+Take a still higher / bird's eye view point of view: get ready for when rules change.
 
 Sur ce qu'est la conscience:
 > Consciousness is simply the light by which the contours of mind and body are known [...] Making this discovery, again and again, is the basis of spiritual life.
