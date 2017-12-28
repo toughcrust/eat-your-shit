@@ -62,10 +62,6 @@ Toujours libérateur à relire:
 Dans le problème Spinoza aussi:
 > Ce vécu heureux et plein de joie est une conséquence de l'abolition de la séparation plutôt que du lien. Voilà la différence - la différence entre les hommes qui se rapprochent pour avoir chaud et les hommes qui ensemble partagent une vision joyeuse de la Nature ou de Dieu. [...] Il semble paradoxal de dire que les hommes sont plus utiles les uns aux autres quand ils suivent chacun leur propre chemin.
 
-
-
-
-
 **Techniques de méditation**:
 - "méditation pleine conscience": regarder ce qui "passe" à la conscience et l'examiner de façon méticuleuse mais détachée. .
 - Faire circuler / débloquer les énergies se revitaliser. L'énergie croupie pourrit les gens => cycles d'ordres / désordre - inspiration / expiration.
