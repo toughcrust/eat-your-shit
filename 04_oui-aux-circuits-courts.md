@@ -1,5 +1,5 @@
-Pour se protéger des court-circuits 
-===================================
+Non aux court-circuits 
+======================
 
 ce que j'apprends beaucoup en ce moment:
 ON doit compresser les infos, les simplifier, les mettre sur une dimension

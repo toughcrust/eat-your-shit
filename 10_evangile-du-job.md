@@ -94,10 +94,6 @@ The very ideal job:
 - touches essential matters: love / environment / joy
 - thought provoking, thought centered, contantly re-definable
 
-**PLAY** RIEN NI PERSONNE NE M'Y INCITE MAIS LE JEU EST CENTRAL DANS LA SPIRITUALITE / LE BOULOT / LE DESIGN
-C'est ce plaisir qu'on ne subit pas, qu'on cultive. Dans le jeu il y a la curiosité, l'amour, la rébellion.
-It's like only play matters in the end and our "serious work stuff" are the real distraction. 
-
 Travailler plus pour gagner moins
 Si je m'imagine bosser gratos ça trie tous les trucs que j'ai pas vraiment envie de faire mais qui me motivent pour l'argent. En plus ça permet de s'imaginer sur des choses pour lesquelles on a aucune compétence. Et qque chose pour lequel on est prêt à sacrifier du confort, de la sécurité
 

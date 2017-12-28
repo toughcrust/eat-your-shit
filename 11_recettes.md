@@ -1,7 +1,7 @@
 # La joie: ivre de recettes
 
 sur les bonnasses:
-Y a pas mieux à faire que de faire semblant d'être cool alors que on est à fond? Genre t'y es absolument pour rien hein mais c'est un plaisir de te regarder et d'essayer de décrypter ce qui est la source du plaisir. Je sais pas pour toi mais moi j'aimerais que ça impacte aussi peu que possible ma façon d'interagir avec toi en dehors de ce que ça semble appeler: du SEXE
+Y a pas mieux à faire que de faire semblant d'être cool alors que on est à fond? Genre t'y es absolument pour rien hein mais c'est un plaisir de te regarder et d'essayer de décrypter ce qui est la source du plaisir. Je sais pas pour toi mais moi j'aimerais que ça impacte aussi peu que possible ma façon d'interagir avec toi en dehors de ce que ça semble appeler: du SEXE => cf courants d'âmes, le physique est une chose, l personnlité d'autres. Faut juste se donner la possibilité de ne pas tout mettre dans la même paquet. 
 
 à mettre dans "projects" sûrement: `Un-mindful VS mindful ingestion of potent food` => la différence entre s'engouffrer des dattes / du chocolat et déguster en laissant ce truc bizarre se passer en bouche (douleur, salivation intense, désir intense du shoot suivant) me paraît fondamentale. D'un côté on dompte la puissance, de l'autre on la laisse nous détruire de l'intérieur.
 
@@ -10,21 +10,13 @@ Let us dare following our own ways. I am looking forward to cross your path
 Vivre son utopie:
 ça va plus loin que de lutter contre "l'effet goutte d'eau dans l'océan".
 C'est qu'en fait sinon t'es pas prêt à profiter de ce que t'espères (tu ne sais même pas ce que c'est en fait !) et encore moins capable de t'apercevoir ce qui existe, est à ta portée et te convient encore plus.
-Comme dans le dev: tout un monde entre inventer une app et la faire 
 
-à mélanger dans une méditation / relaxation qui me ressemble vraiment:
-- l'insulte
-- le souffle profond
-- l'acitivité mentale qu'on amène au rythme du souffle mais qu'on essaie pas d'ignorer. Voir on se concentr encore plus dessus
-- la sensation de laisser des fluides entre et sortir en plusieurs endroits du corps 
 
 Choses qui apportent un surplus d'énergie:
 - manger
 - faire du sport
 - se sortir les doigts du cul et faire ce qu'on pense utile
 - montrer aux autres qu'on les aime sans attendre en retour
-
-=> classés par ordre croissant de coolitude: - de ressources, + d'effet kisscool sur le long terme. Là dedans vient aussi "The holidays feeling" 
 
 #### The holidays feeling
 Quand je prends une douche froide
@@ -56,14 +48,6 @@ commencer une issue "pbs de santé" sur toughcrust:
 - la marche qui déforme nos corps et la posture => marcher pieds nus
 - le confort qui nous rend moins vivant (cette sensation d'excitation de la douche froide) => course au plaisir extrême dans le confort (ex moto)
 
-## Sans T (lol)
-
-ce vers quoi je tends:
-- sans lit
-- sans réveil
-- sans chaussures
-- sans nourriture
-- sans pensée / attache qui ne soit pas vitale
 
 ## Fear the feel !
 
@@ -82,14 +66,6 @@ ce vers quoi je tends:
 
 Mieux vaux être seul que mal accompagné/er: aimer à partir de notre plénitude et non de nos manques.
 
-**Idées en cas de coup de mou**:
-- Classiques: manger "sain" / peloter un sein / reach out
-- Freestyle tout pourri façon orelsan
-- Sunday checkout pour mettre de côté la merdouille
-- S'enraciner avec un peu d'humour (meurice, quotidien, dedienne) ou de l'info cool (vice, telerama)
-- Fire and welcome contradictions / Fight loose
-- `Zen of pure physical effort` / `Violence mediaded meditation`: séance muscu intense / haka intense, courir à la cool pieds nus
-- "to protect and entertain" pour hijack le cerveau
 
 **Fuck la routine**:
 - Meilleure chose au monde: s'offrir ou offrir des instants d'authenticité inédite: souvenir communs, voyages séparés, détail fun du quotidien, série cool, boss à la con, blessure personnelle
@@ -100,6 +76,7 @@ Mieux vaux être seul que mal accompagné/er: aimer à partir de notre plénitud
 - Faire circuler / débloquer les énergies se revitaliser. L'énergie croupie pourrit les gens => cycles d'ordres / désordre - inspiration / expiration.
 - So, what smells like bullshitty crap in there ? On the contrary what resonnates ?
 - Ressentir physiquement que l'on rayonne de bien-être
+- Faire le calme dans l'esprit et le corps pour canaliser l'intuition / l'élan / les meilleurs intentions qui semblent vouloir rentrer par le corps pour accéder jusqu'au mental (via les "chakras" !?)
 
 Pour les 2 premiers points, ce conseil:
 Focus on your breath. You can think “in” as your breath goes in and “out” as your breath goes out if it helps you focus. Label Lefty [brain]. When Lefty brings the circus to town in your head, use a word to label his chatter and dampen it
@@ -109,12 +86,8 @@ ecstasy meditation:
 - Additionner les idées positives
 - Contrer les émotions négatives par des solutions, mêmes totalement connes
 lemme:
-nous sommes faits de polarités qui souvent nous font ressembler à des zombies. Il faut s'autoriser à n'aller que dans le sens de la jouissance quelques instants pour enfin explorer ces idéaux qu'on entrevoit seulement
 
-un peu la même idée qu'un brainstorming bien organisée: sortir d'un fonctionnement nominal, naturel (mais pas forcément si dingue que ça) pour réussir à s'excentrer un peu de ses pensées routinières, usuelles
 
-Pour les choses qui reviennent plus d'une fois: se poser pour y réfléchir vraiment, laisser le problème prendre toute son ampleur sans se réfréner.
-De la même manière ces traces de joies possibles et fugaces en nous qu'on ignore (parce que floue ou qu'on sait impossible) leur laisser de la place. "Be a pro" about it. En faire des chevaux de bataille, des devoirs / droits.
 
 On the imoprtance of saying thank you and **fuck you**:
 - be grateful for what has been given to you
@@ -236,14 +209,13 @@ Est-ce que ça pourrait pas résoudre cette contradiction dont j'ai du mal à me
 Comment ? me permettre de "lâcher les chevaux" en faisant en sorte que tout soit explicité, clair, VRAIMENT pensé
 
 
-mental: focus on archetypal analysis
 spirit: detached , fun and caring dude behind TV with his bros
 
 Plus important que les "dons" avec lesquels on est nés: ce qui nous donne du plaisir et comment on l'utilise pour grandir
 
 "Dans ma religion" J'aime cette expression. Elle est pas si provocante. Elle dit bien qu'on agit selon des préceptes dans lesquels ont a foi. Qui ont pu tout à fait être "établis" rationnellemnt mais dont le cheminement nous échappe dns l'instant présent où l'on s'y fie
 
-Être entier de toutes ses entièretés. Pour moi ça veut dire être fun et philosophe quand il s'agit de rêves et d'aspirations. Être humaniste dans mes emotions et mes colères avec en toile de fond l'idée que l'homme est un animal qui peut s'élever au dessus de lui même, etc avec le reste du zodiaque. ..
+Être entier de toutes ses entièretés. Pour moi ça veut dire être fun et philosophe quand il s'agit de rêves et d'aspirations. Être humaniste dans mes emotions et mes colères avec en toile de fond l'idée que l'homme est un animal qui peut s'élever au dessus de lui même, etc ...
 
 C'est notre propre jugement qui est en fait le plus dur à avaler. C'est quand une partie de nous est d'accord avec un jugement extérieur qu'il nous pourrit.
 
@@ -256,6 +228,7 @@ et c'est pourquoi nos avis ne peuvent pas être rigides: les lois sur lesquelles
 sur comment notre cerveau est super fort, super flexible (on fait du big data, de l'ordi quantique en permanence pour éajuster nos décisiosn en fonction de ce qu'il se passe: on réévalue nos choix passés) et pourquoi on peut s'attacher à des principes cons
 "- Ainsi, dites vous, je serais pris de vertiges parce que les solides fondations de passé ont été ébranlées ?
 - Exactement [...] Votre esprit se trouve surmené parce que totalement préoccupé par la reconstitution du passé, et il n'a plus la capacité d'accomplir son travail normal - comme de prendre soin de votre équilibre. Le problème Spinoza."
+=> big data + learning + compression
 
 Un peu comme la joie, c'est super agréable de se balader dans la rue, d'être au boulot et de se dire qu'on aime tout le monde.
 Ca dure pas et ça nécessite un effort pour y revenir. Et on doute. PArce que c'est sain d'être en colère contre les autres des fois et que ça paraît contradictoire.
@@ -270,15 +243,15 @@ L'humilité n'existe pas. Mais c'est tellement mieux (plus cool) de célébrer l
 Note santé mentale:
 à partir du moment où on est confiant sur le fait de ne pas se saboter => on peut "s'abandonner", se battre contre la maladie en s'en détachant. /!\ aux sabotages que l'on croit subtiles comme dans les relations inter personnelles mais qui en fait ne le sont pas du tout: rechigner à faire quelque chose, même ne pas le faire de tout son coeur c'est du sabotage. Moi ne pas me donner les moyens en <3 c'est du sabotage. Ce que je ne sais pas: pourquoi ?
 
-A lier au chapt sur le plaisir
-plan for abundance
-restrict for unrestriction: des fèves de cacao à décortiquer (faire germer même ?)
-rejoint l'idée d'un corps libéré du mental par l'esprit qui sent de façon plus subtil ce qui est bon ?
 
 Recette supa importante pour la productivité / motivation / organisation:
-DES que j'ai une idée ça me paraît super important de commencer directement à la "mettre sur papier". Même si c'est dimanche et
+DES que j'ai une idée ça me paraît super important de commencer directement à la "mettre sur papier". Même si c'est dimanche ("sunday checkout") et
 que c'est pour le boulot, faire l'exact minimum qui étacnhe on besoin de développer cette idée. Donc ça peut être juste écrire une phrase.
 Et du coup s'arrêter quand j'en ai marre de passer du temps dessus.
 Ca rend "vaincre la résistance" ULTRA FACILE en fait puisque qu'on transforme ça en "céder à la tenatation de vraiment réfléchir
 à un défi qu'on veut s'imposer". Et finalement à la limite le soucis n'est plus de vaincre la résistance mais (peut être)
 de réussir à retrouver une forme d'incativité reposante si le besoin s'en ressent.
+Pour les choses qui reviennent plus d'une fois: se poser pour y réfléchir vraiment, laisser le problème prendre toute son ampleur sans se réfréner.
+De la même manière ces traces de joies possibles et fugaces en nous qu'on ignore (parce que floue ou qu'on sait impossible) leur laisser de la place. "Be a pro" about it. En faire des chevaux de bataille, des devoirs / droits.
+
+
