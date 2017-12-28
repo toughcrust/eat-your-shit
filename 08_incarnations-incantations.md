@@ -1,48 +1,38 @@
 # Va, vis, deviens !
 
-Suivre les courants intimes: go with you fl(o/a)ws
+C'est difficile à exprimer mais j'ai l'intuition que dés lors que l'on s'impose des principes on tue la vie. Se perdre dans des visions de soi et du monde me paraît inéluctable, ne serait-ce que le temps de les envisager: et si j'étais anarchiste, médecin ou entrepreneur à succès ? 
 
-Ouais, ouais, certes ... Mais **qui, quoi, comment ?** j'ai envie de te dire !
+Alors faut-il se programmer ? faut-il des mantras / principes ? Faut-il une une discipline ou au contraire se relâcher ? Tout retenir, tout oublier, se contredire ou s'entêter ?
 
-Faut-il se programmer ? faut-il des mantras / principes ? Faut-il une une discipline ou au contraire se relâcher ? Tout retenir, tout oublier, se contredire ou s'entêter ?
+**Je regroupe ici des choses avec lesquelles je suis partiellement en phase et qui ont le pouvoir de m'enflammer, pour le meilleur et pour le pire.**
 
-Que des choses avec lesquelles je ne suis pas en phase en permanence (contrairement aux recettes de vie) mais qui ont le pouvoir de m'enflammer.
-
-=> EN FAIT ici je mets les histoires **dans lesquelles je peux m'identifier et me perdre**. Ou il serait plus sain que je ne m'identifie pas trop !!!
-
-hell lot of determinisms: astrology, family, people around me, mood, moon, beliefs about myself, etc ...
-make the incouscious ones conscious ? Sure ! Knowing more about myself is one of the greatest pleasure I know.
-conform to them ? why should I if it makes me less happy ? Why should I do anything that makes me less happy. It always
-comes down to the shear notion of pleasure: I'll take more pain only if it makes me more happy.
-
-=> TRIER PAR DANGEROSITE !!!
-
-I want to die as a beautiful, mature and rare fruit that people can feed on.
-Also, I took little resources to grow and unexpected / ingenious ways.
+#### go with the fl(o/a)ws
+Laisse toi guider par tes obsessions. Rejoins celles des autres.
 
 #### Absence de moyens - Ambitions démesurée
 Nous bâtirons un rêve inespéré, une simplicité d'abondance et de beauté insoupçonnée sur les ruines d'une croyance aveugle dans une fuite en avant technophile, influençable et sourde aux désirs profonds. Au triste et lamentable projet de détruire la terre pour se réfugier en des lieux bien plus hostiles encore  (qui n'est en fait motivé que par le desir prestige) nous puiserons nos ressources dans leurs déchets et leur conneries, nous serons les recycleurs des futurs de merde. Les limitations que l'on s'impose ne font pas de nous des hommes de petite ambition, elles font des nous des hommes dune détermination effrayante.
 
-
-**Sections: la version littéraire enflammée, la version putain de cool, la version paléo (+ antifragile + évolutionnariste), la version ésotérique astro, la version 
-=> comme dit dans l'hygiène mentale / spiritualité je dois faire tout ça en même temps. Toute possibilité entrevue est une réalité car la réalité la plus tangible est la pensée.**
-
-Note: la version littéraire enflammée me met mal à l'aise !! mais je sens qu'elle est utile pour questionner le sens de la vie, pour se chambouler et sortir d'une posture de spectateur. Une douleur qui pousse à l'action.
-Je crois pas qu'elle soit saine mais elle est là.
-
-=> faire une distinction avec mes propres envolées lyriques
-=> faire des commentaires de texte ^^ ?
-=> faire une partie "WTF ? arrête de te prendre la tête !?" avec Salomé J.
-
-
+#### Joue le jeu
 > **Joue le jeu. Menace le travail encore plus. Ne sois pas le personnage principal**. Cherche la confrontation. Mais n’aie pas d’intention. **Évite les arrière-pensées. Ne tais rien. Sois doux et fort.** Sois malin, interviens et méprise la victoire. N’observe pas, n’examine pas, mais reste prêt pour les signes, vigilant. Sois ébranlable. **Montre tes yeux, entraîne les autres dans ce qui est profond**, prends soin de l’espace et considère chacun dans son image. Ne décide qu’enthousiasmé. Échoue avec tranquillité. Surtout aie du temps et fait des détours. Laisse-toi distraire. Mets toi pour ainsi dire en congé. **Ne néglige la voix d’aucun arbre, d’aucune eau**. **Entre où tu as envie et accorde-toi le soleil**. Oublie ta famille, **donne des forces aux inconnus**, penche-toi sur les détails, pars où il n’y a personne, **fous-toi du drame du destin**, dédaigne le malheur, **apaise le conflit de ton rire. Mets-toi dans tes couleurs, sois dans ton droit, et que le bruit des feuilles deviennent doux**. Passe par les villages, je te suis.
 
 ``Peter Handke, Par les villages``
 
-Dans l'esprit Deleuze / Damasio:
-- faire plier la force du dehors qui nous fait plier
-- tracer son sillage et emmener avec soi
-- remuer / créer des tourbillons / enflammer, observer la vie prendre vie
+#### Dans l'esprit Deleuze / Damasio
+- Faire plier la force du dehors qui nous fait plier
+- Tracer son sillage et emmener avec soi
+- Remuer / créer des tourbillons / enflammer, observer la vie prendre vie
+
+#### My inner peace needs a war
+Today I haven't had my share of love, fight, fear. The sun set a few hours ago but there's no drum to drive me crazy, dizzy and finally sloppy. I sure have my enemies, but they never show their faces. They eat me from the inside as I doubt my sanity.
+
+So here comes the night and here we are, lying in protest.
+
+I need a storm to burst so that I can find a shelter.
+I need cold, wild animals and spirits to fight so that I can light a fire.
+I need a tearing and hostile world so that I can long for true human binding.
+Fuck me. litterally.
+
+
 
 I'd like to age in something like a badass transsexual grandpa eventually. You know, **no shit, low appetite,
 big laugh, bigmouth, looking after of the offspring**. Having been satisfied an all levels, I now take pleasure in nurturing lifes, Life, what may live ...
@@ -63,17 +53,7 @@ Soyons voltés (La zone du dehors)
 
 Vous vous ennuyez, les gens! L’actif en vous, le vif, a perdu ses adversaires, se morfond, n’a, pour ses conquêtes, plus d’espace, plus de front où aller tremper le métal de ses os ! Plus de quoi s’user, épuiser ses forces, hein? Ah si : dans les petits plaisirs : les capsules, les stimulations artificielles, la virtue, le jeu, les images… **Les gens ne sont pas morbides : ils veulent juste de l’intensité** 
 
-Jacques Salomé. Les relations avec les autres sont kiffantes quand notre relation à nous mêmes l'est déjà. La solitude est féconde. C'est l'écho chez l'autre de mes émotions qui créent des instants / des relations extatiques qui semblent échapper à l'utilitarisme. 
-Toujours libérateur à relire:
 
-- **Reconnaître l'expression de l'autre comme la sienne**. De même je ne laisse pas l'autre parler sur moi. Il ne s'agit pas d'être d'accord mais de mettre en commun ou en apposition.
-- **Nous pouvons nous dire sur plusieurs niveaux: les faits / les sentiments / les idées / le retentissement émotionnel dans notre histoire / l'imaginaire**. Une communication féconde est satisfaisante sur ces 5 niveaux.
-- **Reconnaître que la communication verbale est incomplète** (ce que l'on pense dire, comprendre...) et qu'il faut ajuster en permanence.
-- **Savoir écouter sans chercher de réponse ou juger**: c'est un beau cadeau à offrir, donner et recevoir.
-- **Pouvoir se dire et entendre sans enfermer ou se sentir enfermé: pouvoir être contradictoire**.
-- **Dans une relation saine, demander / refuser / recevoir / donner sont réciproques et libres.** 
-
-**Aimer à partir de notre plénitude et non de nos manques => mieux vaux être seul que mal accompagner.** 
 
 > Whatever you can do, or dream you can do, begin it. Boldness has genius, power, and magic in it. Begin it now.
 `Goethe`
@@ -132,15 +112,7 @@ Je suis caracole dans un corps-esprit d'attachements
 
 Hier et Demain tuent le possible, cet animal de l'instant, cette bête aux yeux effarés prise en pleins phares, qui autrement se tapit dans les mirages de nos vies endormies.
 
-My inner peace needs a war
-Today I haven't had my share of love, fight, fear. The sun set a few hours ago but there's no drum to drive me crazy, dizzy and finally sloppy. I sure have my enemies, but they never show their faces. They eat me from the inside as I doubt my sanity.
 
-So here comes the night and here we are, lying in protest.
-
-I need a storm to burst so that I can find a shelter.
-I need cold, wild animals and spirits to fight so that I can light a fire.
-I need a tearing and hostile world so that I can long for true human binding.
-Fuck me. litterally.
 
 Les trucs à la con sur les gémeaux qui résonent en moi: Away from routine, to care and meaning
 
