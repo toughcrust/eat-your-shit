@@ -105,49 +105,15 @@ Les avis à la con de tout le monde sur tout
 
 Ma version: regarder ce que font les "bloggueurs santés", "naturopathes holistiques", etc... et **tirer mes propres conclusions de leurs expériences.** Leurs tentatives d'explications pseudo scientifiques par contre ont un grand risque d'être nocives.
 
-Les comparaisons avec les autres
----------------------------------------------
 
-et la dévaluation, alors même qu'au fond on sait qu'on serait pas plus heureux à leur place !
+**I do not compete much: it limits me and distracts my attention from what I really care.**
 
-**antidotes**:
-- Je ne cherche pas ma place, ça m'enferme
-- Définir définit. Laisser les autres me définir est toxique
-- **No competition: it limits me and my HORIZONS**
-
-Psychanalyse / psycho
-------------------------------
-
-< Description de pourquoi parler de papa maman le boss en boucle ça creuse les sillons pré-existants de souffrance. Donner exemples de méthodes similaires et contre-productives: les pubs anti-racisme avec clichés, anti-cigarettes avec le côté dangereux de fumer, etc.. >
-
-**antidote**:
-> An animal bares it's teeth, smile back. If it attacks you let it eat you, get out of his ass and keep going. 
-
-**Ne pas négliger la puissance de se transformer quelque soit son passé. Revenir sur des évènements traumatiques, des rêves, en agissant différemment.** Sortir de cette torpeur onirique dans laquelle on s'enlise quotidiennement, révéler sa puissance de changement
-
-La mélancolie de merde moderne
----------------------------------------------
-La routine et ses bonheurs éparses, construits sur la longueur, constamment portés sur le passé et le futur (les choses de pèrec, américain psycho, la vie parisienne ... )
-
-Les avis à la con de tout le monde sur tout
----------------------------------------------------------
-
-**antidote:**
 
 > Never ask anyone for their opinion, forecast or recommendation. Just ask them what they have, or don't 
 `Nassim Nicholas Taleb`
 
 Ma version: regarder ce que font les "bloggueurs santés", "naturopathes holistiques", etc... et **tirer mes propres conclusions de leurs expériences.** Leurs tentatives d'explications pseudo scientifiques par contre ont un grand risque d'être nocives.
 
-Les comparaisons avec les autres
----------------------------------------------
-
-et la dévaluation, alors même qu'au fond on sait qu'on serait pas plus heureux à leur place !
-
-**antidotes**:
-- Je ne cherche pas ma place, ça m'enferme
-- Définir définit. Laisser les autres me définir est toxique
-- **No competition: it limits me and my HORIZONS**
 
 Mon prochain boulot doit faire de moi un dieu
 -----------------------------------------------------------
@@ -194,7 +160,7 @@ notre conscience / l'observation est liée à l'émergence du plaisir ? connecte
 **Lié au hack** => le jour où les robots se hackent pour le plaisir, respect
 
 ## capitalisme. POUR. CONTRE
-génial dans ce qu'il fait circuler les énergies. Naze dans ce que cette énergie n'insuffle pas en retour la vie ne sert pas à la rendre exaltante. C'est comme un coureur de trial qui ne ferait que du tapis de course en sous-sol (plutôt que de traverser les pyrénées :b).
+génial dans ce qu'il fait circuler les énergies. Naze dans ce que cette énergie n'insuffle pas en retour la vie ne sert pas à la rendre exaltante. 
 
 douter de soi et douter des intentions des autres
 =================================================
