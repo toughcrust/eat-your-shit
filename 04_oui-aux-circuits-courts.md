@@ -1,6 +1,11 @@
 Non aux court-circuits 
 ======================
 
+sur comment notre cerveau est super fort, super flexible (on fait du big data, de l'ordi quantique en permanence pour éajuster nos décisiosn en fonction de ce qu'il se passe: on réévalue nos choix passés) et pourquoi on peut s'attacher à des principes cons
+"- Ainsi, dites vous, je serais pris de vertiges parce que les solides fondations de passé ont été ébranlées ?
+- Exactement [...] Votre esprit se trouve surmené parce que totalement préoccupé par la reconstitution du passé, et il n'a plus la capacité d'accomplir son travail normal - comme de prendre soin de votre équilibre. Le problème Spinoza."
+=> big data + learning + compression
+
 ce que j'apprends beaucoup en ce moment:
 ON doit compresser les infos, les simplifier, les mettre sur une dimension
 on a pas trop le choix. Bien le faire est un travail / re-travail harassant

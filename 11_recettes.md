@@ -1,16 +1,13 @@
 # La joie: ivre de recettes
 
-sur les bonnasses:
-Y a pas mieux à faire que de faire semblant d'être cool alors que on est à fond? Genre t'y es absolument pour rien hein mais c'est un plaisir de te regarder et d'essayer de décrypter ce qui est la source du plaisir. Je sais pas pour toi mais moi j'aimerais que ça impacte aussi peu que possible ma façon d'interagir avec toi en dehors de ce que ça semble appeler: du SEXE => cf courants d'âmes, le physique est une chose, l personnlité d'autres. Faut juste se donner la possibilité de ne pas tout mettre dans la même paquet. 
-
-à mettre dans "projects" sûrement: `Un-mindful VS mindful ingestion of potent food` => la différence entre s'engouffrer des dattes / du chocolat et déguster en laissant ce truc bizarre se passer en bouche (douleur, salivation intense, désir intense du shoot suivant) me paraît fondamentale. D'un côté on dompte la puissance, de l'autre on la laisse nous détruire de l'intérieur.
+Gérer ses hormones devant une créature attirante: "t'y es absolument pour rien hein mais c'est un plaisir de te regarder et d'essayer de décrypter ce qui est la source de mon plaisir. Je sais pas pour toi mais moi j'aimerais que ça impacte aussi peu que possible ma façon d'interagir avec toi en dehors de ce que ça semble appeler: du SEXE" 
+=> cf courants d'âmes, le physique est une chose, l personnlité d'autres. Faut juste se donner la possibilité de ne pas tout mettre dans la même paquet. 
 
 Let us dare following our own ways. I am looking forward to cross your path 
 
 Vivre son utopie:
 ça va plus loin que de lutter contre "l'effet goutte d'eau dans l'océan".
 C'est qu'en fait sinon t'es pas prêt à profiter de ce que t'espères (tu ne sais même pas ce que c'est en fait !) et encore moins capable de t'apercevoir ce qui existe, est à ta portée et te convient encore plus.
-
 
 Choses qui apportent un surplus d'énergie:
 - manger
@@ -22,10 +19,6 @@ Choses qui apportent un surplus d'énergie:
 Quand je prends une douche froide
 Quand je sors de moi même pour parler avec enthousiasme 
 
-Pour se protéger de ce qu'on perçoit de négatif
-Pour aller de l'avant même quand ça va pas
-Sans se forcer à penser positif, c'est plus un choix du corps qui tente d'influencer le mental
-
 **Pour ne pas papilloner / Vaincre la résistance / Faire tout simplement** 
 => En fait si imaginer faire une chose était quasi équivalent à le faire on aurait tout à fait raison de ne pas se poser et prendre le temps de faire 1 chose bien. Mais en fait ce n'est pas le cas ! Quand je prends une idée et que je prends le temps de la mettre par écrit plutôt que de la laisser revenir à l'esprit régulièrement tout autre chose se passe:
 - ça prend forme (l'équivalent pour un bigleux de mettre des lunettes) et ça éclaircit sur mes vraies motivations à entretenir telle pensée !
@@ -33,21 +26,19 @@ Sans se forcer à penser positif, c'est plus un choix du corps qui tente d'influ
 - j'accouche de quelque chose de meileur que moi (parce que non volatile) 
 
 **ET en fait idée séduisante=> si je m'attèle à un peu n'importe quoi sur lequel je suis capable de me concentrer et décide de m'appliquer à cette chose, je vais pouvoir lentement dériver vers un but et une forme de travail qui correspondent à de plus profondes aspirations que l'obsession de l'instant.**
+
+Recette supa importante pour la productivité / motivation / organisation:
+DES que j'ai une idée ça me paraît super important de commencer directement à la "mettre sur papier". Même si c'est dimanche ("sunday checkout") et
+que c'est pour le boulot, faire l'exact minimum qui étacnhe on besoin de développer cette idée. Donc ça peut être juste écrire une phrase.
+Et du coup s'arrêter quand j'en ai marre de passer du temps dessus.
+Ca rend "vaincre la résistance" ULTRA FACILE en fait puisque qu'on transforme ça en "céder à la tenatation de vraiment réfléchir
+à un défi qu'on veut s'imposer". Et finalement à la limite le soucis n'est plus de vaincre la résistance mais (peut être)
+de réussir à retrouver une forme d'incativité reposante si le besoin s'en ressent.
+Pour les choses qui reviennent plus d'une fois: se poser pour y réfléchir vraiment, laisser le problème prendre toute son ampleur sans se réfréner.
+De la même manière ces traces de joies possibles et fugaces en nous qu'on ignore (parce que floue ou qu'on sait impossible) leur laisser de la place. "Be a pro" about it. En faire des chevaux de bataille, des devoirs / droits.
+
           
-
 J'ai terriblement terriblement besoin de hugs !
-
-
-
-commencer une issue "pbs de santé" sur toughcrust:
-- la santé mentale => S'avouer malade ! s'abandonner à la maladie (corps / mental) pour au contraire ne pas se résigner (bien dissocier l'esprit qui lui n'est jamais malade)
-- la respiration => mauvaise respiration == brain fog
-- lien entre pectus excavatum et bide ? SOLUTION contre pectus avec exercice trouvé par moi :b ? se mettre le dos droit en se penchant puis remonter en poussant sur les cuisses
-- la langue et son rôle dans la posture. plus de mastication comme avant => petits palais. SOLUTION: mâcher du coton ! lave les dents aussi
-- l'alimentation indapatée à nos corps. pas de minéraux venant de l'argile ou des os. gout de la graisse remplacée par sucre (cheap)
-- la marche qui déforme nos corps et la posture => marcher pieds nus
-- le confort qui nous rend moins vivant (cette sensation d'excitation de la douche froide) => course au plaisir extrême dans le confort (ex moto)
-
 
 ## Fear the feel !
 
@@ -64,12 +55,12 @@ commencer une issue "pbs de santé" sur toughcrust:
 - Pouvoir se dire et entendre sans enfermer ou se sentir enfermé: pouvoir être contradictoire.
 - Dans une relation saine, demander / refuser / recevoir / donner sont réciproques et libres. 
 
-Mieux vaux être seul que mal accompagné/er: aimer à partir de notre plénitude et non de nos manques.
+Mieux vaux être seul que mal accompagné/er: aimer à partir de notre plénitude et non de nos manques. Dans le problème Spinoza aussi:
+> Ce vécu heureux et plein de joie est une conséquence de l'abolition de la séparation plutôt que du lien. Voilà la différence - la différence entre les hommes qui se rapprochent pour avoir chaud et les hommes qui ensemble partagent une vision joyeuse de la Nature ou de Dieu. [...] Il semble paradoxal de dire que les hommes sont plus utiles les uns aux autres quand ils suivent chacun leur propre chemin.
 
 
-**Fuck la routine**:
-- Meilleure chose au monde: s'offrir ou offrir des instants d'authenticité inédite: souvenir communs, voyages séparés, détail fun du quotidien, série cool, boss à la con, blessure personnelle
-- Il faut faire des trucs cons / fous régulièrement pour nourrir cette authenticité
+
+
 
 **Techniques de méditation**:
 - "méditation pleine conscience": regarder ce qui "passe" à la conscience et l'examiner de façon méticuleuse mais détachée. .
@@ -87,8 +78,6 @@ ecstasy meditation:
 - Contrer les émotions négatives par des solutions, mêmes totalement connes
 lemme:
 
-
-
 On the imoprtance of saying thank you and **fuck you**:
 - be grateful for what has been given to you
 - let you free to use it as I you wish, it's not a package
@@ -97,23 +86,11 @@ On the imoprtance of saying thank you and **fuck you**:
 - I'm grateful for what has been given to me and I say fuck you I'm free
 - I acknowledge there's a lot of things I wish I could do and I'm also willing to care less
 
-mettre truc sur les archztypes partagés par tous, comment ils sont activés ou non, pourquoi il faut s'y intéresser, pourquoi il faut s'en détacher
-+ rage & joie & tristesse (transmuter en émotions basique c'est sain)
-
-Ne pas manger quand on est triste fatigué ou en colère ? 
-
-Various reflexions on what mental health is and how to improve it.
+rage & joie & tristesse (transmuter en émotions basique c'est sain)
 
 ## Osthéopathie du cerveau
 
 maladie mentale et physique sont indissociables et correspondent à un/des désalignement(s) (au sens propre ou figuré). Frustrant quand la cause n'est pas apparente (c'est psychologique == ça n'existe pas !). Une certaine forme de violence ("sortir de sa zone de confort" / remettre une articulation) peut être nécessaire / utile dans la mesure où elle vise un ré-alignement.
-
-## Les médecins que j'aime
-
-- un expert qui expose ses connaissances et ce qu'il ignore
-- préconise en conformité avec ce qu'il ferait pour lui-même
-- vise à la compréhension et la prise en main de leur santé chez ses patients
-- vise à rétablir un état d'équilibre qui est censé se renforcer de lui même (anti-fragilité)
 
 ## Pourquoi accabler celui qui souffre ?
 
@@ -137,6 +114,9 @@ Dés lors, face aux autres:
 - on se rend compte que l'auto-flagellation n'a aucune utilité
 - on se rend compte que la meilleure chose à faire est de parler de son combat de manière détachée, pour mieux le voir se matérialiser sous ses yeux.
 
+Note santé mentale:
+à partir du moment où on est confiant sur le fait de ne pas se saboter => on peut "s'abandonner", se battre contre la maladie en s'en détachant. /!\ aux sabotages que l'on croit subtiles comme dans les relations inter personnelles mais qui en fait ne le sont pas du tout: rechigner à faire quelque chose, même ne pas le faire de tout son coeur c'est du sabotage. Moi ne pas me donner les moyens en <3 c'est du sabotage. Ce que je ne sais pas: pourquoi ?
+
 ### Ecouter
 
 truc bizarre: faire taire sa réactivité / poser des questions très simples c'est super agréable et pourtant
@@ -155,28 +135,7 @@ Else, do you have any tension / pain in your body ? If yes, what is it **very pr
 (\*) The **very precisely** part is here to help you really dig into the issue. Hopefully, it will hurt you head but
 you should end up choosing with confidence how to cope with it: graceful acceptance or proud fighting ?
 
-### The 24 hours game rules
 
-Ma vie se résume pour sûr à ces prochaines 24h. Ce qui m'occupe donc dans l'immédiat c'est:
-- Le basique du basique pour survivre. Est-ce que j'ai même besoin de penser à manger ?
-- Abandonner tout ce qui n'est pas de l'ordre du kiff massif pour se concentrer sur LE truc que je veux réaliser
-
-=> alors 24h pas forcément adapté pour tout. Echelle de temps pour s'inquiéter: 
-Avoir un toit: 6 mois
-Avoir à manger: 1 semaine
-S'assurer qu'on a dit aux gens ce qu'on avait envie de leur dire (typiquement "je t'aime") => 24h
-Avoir mis ses projets dans un draft: 24h
-
-
-### Le couple tantrique
-
-http://www.pascalmartelli.com/couple-tantrique/
-
-Dans le problème Spinoza aussi:
-"Ce vécu heureux et plein de joie est une conséquence de l'abolition de la séparation plutôt que du lien.
-Voilà la différence - la différence entre les hommes qui se rapprochent pour avoir chaud et les hommes qui ensemble
-partagent une vision joyeuse de la Nature ou de Dieu. [...] Il semble paradoxal de dire que les hommes sont plus
-utiles les uns aux autres quand ils suivent chacun leur propre chemin."
 
 ### Mental & esprit: l'analogie du gouverment progressiste
 
@@ -225,10 +184,8 @@ tout ce que sait faire l'intelligence humaine c'est de l'analyse statistiques. D
 et c'est pourquoi nos avis ne peuvent pas être rigides: les lois sur lesquelles on se base ne sont elles-même pas rigides.
 => j'aimerais beaucoup être capable d'illustrer dans une vidéo un dialogue entre deux personnes et montrer comment leurs compréhensions se recontrent et s'opposent en fonction de leurs expériences, représentations mentales, focus (illusions, envies, etc..)
 
-sur comment notre cerveau est super fort, super flexible (on fait du big data, de l'ordi quantique en permanence pour éajuster nos décisiosn en fonction de ce qu'il se passe: on réévalue nos choix passés) et pourquoi on peut s'attacher à des principes cons
-"- Ainsi, dites vous, je serais pris de vertiges parce que les solides fondations de passé ont été ébranlées ?
-- Exactement [...] Votre esprit se trouve surmené parce que totalement préoccupé par la reconstitution du passé, et il n'a plus la capacité d'accomplir son travail normal - comme de prendre soin de votre équilibre. Le problème Spinoza."
-=> big data + learning + compression
+
+### Cultiver la légèreté lucide
 
 Un peu comme la joie, c'est super agréable de se balader dans la rue, d'être au boulot et de se dire qu'on aime tout le monde.
 Ca dure pas et ça nécessite un effort pour y revenir. Et on doute. PArce que c'est sain d'être en colère contre les autres des fois et que ça paraît contradictoire.
@@ -237,21 +194,9 @@ La grande difficulté de la pensée humaine: GARDER A L'ESPRIT !! parce que ça 
 
 dans la discussion avec soi ou les autres: toujours utile et enrichissant de déployer sa pensée à "voix haute" sans honte (et en se laissant même la possibilité d'exprimer ses réticences à surpasser sa honte), sans chercher à cacher les pistes mal dégrossies / moins séduisantes / contradictoires. Bref tout déployer comme un plan avant l'attaque, jouer cartes sur tables. Seul moment où on ne veut pas faire ça: quand on pense que l'autre n'est pas en mesure de respecter une telle honnêteté
 
-quand on peut fierté et honte sont mieux servis par cool / pas cool.
-L'humilité n'existe pas. Mais c'est tellement mieux (plus cool) de célébrer la coolitude de qque chose devenu possible dont on a pris plus ou moins part que de célébrer un truc qui est censé en être la source mais pas vraiment en fait.
-
-Note santé mentale:
-à partir du moment où on est confiant sur le fait de ne pas se saboter => on peut "s'abandonner", se battre contre la maladie en s'en détachant. /!\ aux sabotages que l'on croit subtiles comme dans les relations inter personnelles mais qui en fait ne le sont pas du tout: rechigner à faire quelque chose, même ne pas le faire de tout son coeur c'est du sabotage. Moi ne pas me donner les moyens en <3 c'est du sabotage. Ce que je ne sais pas: pourquoi ?
 
 
-Recette supa importante pour la productivité / motivation / organisation:
-DES que j'ai une idée ça me paraît super important de commencer directement à la "mettre sur papier". Même si c'est dimanche ("sunday checkout") et
-que c'est pour le boulot, faire l'exact minimum qui étacnhe on besoin de développer cette idée. Donc ça peut être juste écrire une phrase.
-Et du coup s'arrêter quand j'en ai marre de passer du temps dessus.
-Ca rend "vaincre la résistance" ULTRA FACILE en fait puisque qu'on transforme ça en "céder à la tenatation de vraiment réfléchir
-à un défi qu'on veut s'imposer". Et finalement à la limite le soucis n'est plus de vaincre la résistance mais (peut être)
-de réussir à retrouver une forme d'incativité reposante si le besoin s'en ressent.
-Pour les choses qui reviennent plus d'une fois: se poser pour y réfléchir vraiment, laisser le problème prendre toute son ampleur sans se réfréner.
-De la même manière ces traces de joies possibles et fugaces en nous qu'on ignore (parce que floue ou qu'on sait impossible) leur laisser de la place. "Be a pro" about it. En faire des chevaux de bataille, des devoirs / droits.
+
+
 
 
