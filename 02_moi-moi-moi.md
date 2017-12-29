@@ -40,6 +40,8 @@ et parasiter l'objet réel de mon propos. **Oui c'est là et alors ? Sublimons c
 Et je crois qu'il n'y a pas de plus belle sensation au monde que d'admettre quelque dont on a honte et de se sentir entendu /
 compris / accepté.**
 
+Autre obsession: trouver le dénominateur commun dans les aspirations du plus grand nombre. Méthode: laisser décanter en moi des éléments éparses, faire circuler la pensée (analyse / synthèse, insufflation / expiration, ...) pour passer d'un sentiment vague "it kinda feels right" à une décomposition minutieuse des résonances dans les différentes strates de la pensée (émotions, logique, etc ...).
+
 Now to more intimate drives (mine).
 
 ### Et donc moi, ici ?
@@ -50,8 +52,7 @@ when opening up to very intimate stuff. I do have the desire to write it in Fren
 
 Globally I have been struggling with psychological / mental issues. Depression ? Probably at one point. The symptoms:
 - A feeling I cannot not enjoy what I somehow know I should. For example making music. Persisting in doing it would make me
-  tired of it. There's a lot of these things I have barely begun and abandoned quickly (or worst tried for too long). Once done with it
-  I would be left with the impression I have wasted something precious. If commited to other people in a project, I'd
+  tired of it. There's a lot of these things I have barely begun and abandoned quickly (or worst tried for too long). Once done with it I would be left with the impression I have wasted something precious. If commited to other people in a project, I'd
   often be super ashamed when walking away. So it has actually made me avoid things and situations I was attracted to in the fear of spoiling them.
 - Longing to belonging to a community / communities of people but being unable to fit in. Needing friends but being unable
   to reach out to them. Wanting to express love to family or lover but finding myself unable to do so.
