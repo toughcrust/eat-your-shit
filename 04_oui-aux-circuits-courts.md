@@ -1,6 +1,8 @@
 Non aux court-circuits 
 ======================
 
+Pour se rendre compte de l'utilité de l'état: vivre de 16 à 18 ans sans ?
+
 sur comment notre cerveau est super fort, super flexible (on fait du big data, de l'ordi quantique en permanence pour éajuster nos décisiosn en fonction de ce qu'il se passe: on réévalue nos choix passés) et pourquoi on peut s'attacher à des principes cons
 "- Ainsi, dites vous, je serais pris de vertiges parce que les solides fondations de passé ont été ébranlées ?
 - Exactement [...] Votre esprit se trouve surmené parce que totalement préoccupé par la reconstitution du passé, et il n'a plus la capacité d'accomplir son travail normal - comme de prendre soin de votre équilibre. Le problème Spinoza."
