@@ -1,3 +1,11 @@
+Bon manager: where are you gonna / or do you want badly / to surpass me ?
+=> I'll give you challenge
+What bores you to death ? We'll find ways to flip the situation and more than overcome it: a good surprise 
+
+dedication in service to a cause with our obsession is what makes for great work. 
+Uncool happens when your force dedication to stuff no one cares about.
+On the contrary also happens if you're too dedicated and don't use it only to express your potential.
+
 Manageable ultra multi-tasking: write down everything, have reliable reminders and places to go look for info. Mind should be clear of worry.
 
 C'est super agréable d'avoir une TODO liste ultra raisonnable et de se dire qu'on se garde 1h de boulot pour faire un truc qui nous tient à coeur et qui n'est pas essentiel. Finalement y passer 2h parce que c'est cool.

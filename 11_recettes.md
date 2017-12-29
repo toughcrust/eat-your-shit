@@ -1,3 +1,5 @@
+Ego and stuff are things that hide the tiny signals hinting at greatness / coolness. "Ego" is better served at rejoycing at the success of our whole life experience, tying it to our own body role can only spoil it.
+
 # La joie: ivre de recettes
 
 Gérer ses hormones devant une créature attirante: "t'y es absolument pour rien hein mais c'est un plaisir de te regarder et d'essayer de décrypter ce qui est la source de mon plaisir. Je sais pas pour toi mais moi j'aimerais que ça impacte aussi peu que possible ma façon d'interagir avec toi en dehors de ce que ça semble appeler: du SEXE" 

@@ -1,6 +1,11 @@
 # My very own indie sprirituality
 
+Conscience is the crisis room of issues of all sorts: existential questions, immediate survival
 
+I (and I assume we) usually refer to "truth" when talking about a soothing concept that reconciliates all consciousness available strates of ourselves.
+
+We get our idea of death from the experience of birth: from void to consciousness we extrapolate consciousness to void that
+could be death
 
 Humour, Amour pour ce qui est à l'intérieur de soi et résone chez les autres
 Maïeutique de ce qui est en soi: créer de la joie ou s'ouvrir à une souffrance
