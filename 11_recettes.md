@@ -1,4 +1,4 @@
-Ego and stuff are things that hide the tiny signals hinting at greatness / coolness. "Ego" is better served at rejoycing at the success of our whole life experience, tying it to our own body role can only spoil it.
+Ego and stuff are things that hide the tiny signals hinting at greatness / coolness. "Ego" is better served at rejoycing at the success of our whole life experience, tying it to our own body role can only spoil it. Channel all ego and megalomany into the desire of living in a different world, one that make your imagination sparkle.
 
 # La joie: ivre de recettes
 
