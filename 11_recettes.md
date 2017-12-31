@@ -1,3 +1,9 @@
+Be the person and the experiences you'd like to meet and connect with in a cocktail party
+
+Du bon usage des archétypes: rarement s'y référer ! que dans les moments de crise. Quand on sait qu'on est le meilleur et qu'on l'apprend, quand on se rend compte que l'on est en méditation profonde => on tue la liberté d'esprit qui nous faisait suivre nos instincts
+
+Analyser plus en profondeur ce phénomène étrange: on est attirés par des lieux, des endroits des gens, on veut rayonner de joie, être généreux, audacieux. Mais des choses nous retiennent à chaque fois sans que l'on sache ni trop comment ni pourquoi. Ca rend malheureux, et pourtant quand je regarde en arrière j'ai le sentiment d'avoir majoritairement des bons choix. Mon corps sait qu'il n'est pas assez solide pour suivre les injonctions de l'esprit.   
+
 Ego and stuff are things that hide the tiny signals hinting at greatness / coolness. "Ego" is better served at rejoycing at the success of our whole life experience, tying it to our own body role can only spoil it. Channel all ego and megalomany into the desire of living in a different world, one that make your imagination sparkle.
 
 # La joie: ivre de recettes
