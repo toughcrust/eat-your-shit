@@ -2,6 +2,8 @@
 
 `Alan Watts on WWII`
 
+I'm the reincarnation of spirits I want to be, I want to meet. Je les convoque , je les invoque, je les aspire, je les fais vivre à travers moi.
+
 # My very own indie sprirituality
 
 La vie est un combat ("Do not go gentle into that good night"). Vers la joie et dans la joie dés que possible. Savoir de quoi on est fait a pour seule utilité de connaître nos forces et nos peurs. Nos forces pour s'en servir, nos peurs pour les regarder en face et les voir fondre. Sachant cela, le combat et la joie se nourrissent des idées reçues dont on s'affranchit. Pour ce qui est de savoir notre part de libre arbitre, on voit bien à quel point cette question est con: à partir du moment où l'on engage le combat, avoir à l'esprit une telle question siffle la mort. Se poser la question du libre arbitre c'st choisir de se retirer du jeu.
