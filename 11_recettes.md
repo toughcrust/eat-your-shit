@@ -1,3 +1,10 @@
+Un de mes plus gros défis: **Don't be a stranger** => j'ai besoin de techniques là !
+des techniques douces et progressives !
+
+J'arrête pas de me dire que j'ai dépassé la solitude et la peur de mon enfance: c'est complètement faux. Je suis en fait persuadé que ça fait partie des choses qui viennent se cacher dans d'autres peurs, tristesses, blocages. Ce truc non résolu trouve une voie d'expression, un défouloir en cachant sa vérité que j'ai du mal à affronter. Ca permet de se mettre des oeillères et avancer mais en fait ça rend l'épanouissement véritable difficile: trop de choses enfouies => **comment parler de ces choses et à qui, comment les évacuer ?**  
+des techniques douces et progressives !
+
+
 Be the person and the experiences you'd like to meet and connect with in a cocktail party
 
 Du bon usage des archétypes: rarement s'y référer ! que dans les moments de crise. Quand on sait qu'on est le meilleur et qu'on l'apprend, quand on se rend compte que l'on est en méditation profonde => on tue la liberté d'esprit qui nous faisait suivre nos instincts
