@@ -1,3 +1,10 @@
+concilier:
+- besoin d'expression orale
+- besoin d'exprimer des choses difficiles 
+- ennui dés que l'humour, la légèreté sont mis de côté
+- difficulté à se connecter aux autres parce que mon esprit s'attache aux tabous
+=> Stand up ! (au moins tout seul avec mon tél pour me filmer)
+
 Un de mes plus gros défis: **Don't be a stranger** => j'ai besoin de techniques là !
 des techniques douces et progressives !
 
