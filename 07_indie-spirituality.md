@@ -1,3 +1,10 @@
+En fait ces2 cosmogonies:
+- Foods of the gods: lente désintox de l'homme
+- L'histoire secrète du monde: lente incarnation et perte du contact avec le monde spirituel représenté dans les mythes
+sont excellente à garder à l'esprit: toutes les 2 ultra convaincantes, rendent compte de choses qui m'ont toujours parues absurdes (contes, légendes, mythes, religions) mais totalement pas en phases sur le plan "moral".
+Avec ces deux "guides contradictoires non prouvables" je trouv ma propre lierté d'expression. Comme les oxymores me permettent d'exprimer la dualité en moi de tout sentiment (S'il n'y avait pas de dualité, je serais même incapable de reconnaître un sentiment comme tel ! ce serait juste une attitude qui passerait inaperçue). 
+
+
 > I have faith that something good will come out of this in the end like the phoenix out of the fire. But in the meantime it’s almost impossible to know how to plan for the future. Things here are as good as can be expected, but under such strains you never know when people are going to go crazy! Sometimes I get the queerest feeling that things going on in the world around one, are in some odd way reflections of things happening in the depths of one’s own mind. It is almost as if the world gets calm as you keep calm yourself, and vice versa. Yet it would be absurd to imagine that one could actually control the course of events in that way because this would imply the belief that oneself alone is real and all else a figment of thought. But it convinces me more and more that there is a universe inside one, which contains Hitler and all forms of human madness as well as love and beauty.
 
 `Alan Watts on WWII`
