@@ -3,13 +3,13 @@
 
 _(💥) courtesy of 104 Paris et sûrement un peu de Yoda_
 
-> **[warning] Cautionary notes from the author**
+> **[warning] Cautionary notes**
 
-> Feel free to take whatever is worth to you and leave the shitty parts out ...
+> Take whatever is worth to you and leave the shitty parts out
 
-> ... But, well, I value shit you know (to be continued ...)
+> Beware, there's shitty shit and the shit you're born from
 
-> So ... Embrace poop or burn it with file 💩 🔥
+> Embrace poop or burn it with fire 💩 🔥
 
 ---
 

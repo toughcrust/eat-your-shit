@@ -1,4 +1,22 @@
-En fait ces2 cosmogonies:
+Idée marrante: la vie, les rêves c'est de l'hypnose. Je suis un hypnotiseur de ce corps (du "subconscient") et il y en a d'autres !.
+Je suis: un observateur + un hypnotiseur par le verbe. 
+
+I tend to really take seriously people who don't take themselves seriously. Am I a joke when I'm too serious ?
+
+Only thing that matter: having stuff to share in a party with like minded open people. What parties ?
+- Reggae festival
+- Environmental demonstration
+- Tech event
+- Project managers afterwork
+- Art exhib' opening
+
+mode de pensée plus que religion: auto-fuck
+le matin devant le miroir: fuck à soi même et se sourir avec compassion
+avec les autres: les autres sont une chance, se donner et donner les moyens de pouvoir exprimer le meilleur, le + authentique, le + innocent de soi. On est tout à fait conscients que pour que ces aspects existent c'est que leur dual est aussi là: égoïsme, sabotage, illusions. Ils sont là pour nous faire la courte échelle.
+la dualité, les parts obscures de nos désirs, c'est ce qui créé le mouvement. Comme les électrolytes d'une batterie.
+Comme le "mauvais cholésterol": pas mauvais en soi, il charrie simplement ce qui tue.
+
+En fait ces 2 cosmogonies:
 - Foods of the gods: lente désintox de l'homme
 - L'histoire secrète du monde: lente incarnation et perte du contact avec le monde spirituel représenté dans les mythes
 sont excellente à garder à l'esprit: toutes les 2 ultra convaincantes, rendent compte de choses qui m'ont toujours parues absurdes (contes, légendes, mythes, religions) mais totalement pas en phases sur le plan "moral".
