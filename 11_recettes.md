@@ -1,3 +1,5 @@
+J'avons une tendance naturelle au malheur. Trouvons des malheurs qui me rendent heureux.
+
 concilier:
 - besoin d'expression orale
 - besoin d'exprimer des choses difficiles 
