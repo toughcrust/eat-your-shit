@@ -1,3 +1,11 @@
+**A professional is an amateur who never quit.** (someone else)
+
+> Deep work and mindfulness share a commitment to being intentional with your attention. We don’t always realize how much we allow our attention to be claimed and manipulated and batted around like a toy by outside forces. When you sit down to, say, meditate, or focus intensely on one hard work task, the resistance you feel at first helps underscore this state of affairs.
+
+*Cal Newport*
+
+Cal Newport debunks the long-held belief that “follow your passion” is good advice. Not only is the cliché flawed—preexisting passions are rare and have little to do with how most people end up loving their work— but it can also be dangerous, leading to anxiety and chronic job hopping.
+
 Bon manager: where are you gonna / or do you want badly / to surpass me ?
 => I'll give you challenge
 What bores you to death ? We'll find ways to flip the situation and more than overcome it: a good surprise 
