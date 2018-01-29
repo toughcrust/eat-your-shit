@@ -1,5 +1,11 @@
 # Design nuts
 
+Mon obélisque of needs:
+- utile
+- chaleureux
+- léger
+- joli
+
 à mettre dans les méthodes de design:
 ce truc que j'avais réussi à faire pour faire un retour objectif:
 me départir de toute analyse des pensées qui m'arrive pour faire un retour sans filtre mais sans méchanceté
