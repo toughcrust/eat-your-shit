@@ -1,10 +1,8 @@
 # Design nuts
 
 Mon obélisque of needs:
-- utile
-- chaleureux
-- léger
-- joli
+- utile & chaleureux
+- léger & joli
 
 à mettre dans les méthodes de design:
 ce truc que j'avais réussi à faire pour faire un retour objectif:
