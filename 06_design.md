@@ -1,5 +1,7 @@
 # Design nuts
 
+I AM A CONVIVIALIST SHIT DIGGER
+
 Mon obélisque of needs:
 - utile & chaleureux
 - léger & joli
