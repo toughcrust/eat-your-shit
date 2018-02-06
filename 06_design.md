@@ -1,5 +1,7 @@
 # Design nuts
 
+**Holy shift - awareness shifting design**
+
 **Design d'interactions humaines ?**
 
 https://m.signalvnoise.com/running-in-circles-aae73d79ce19
