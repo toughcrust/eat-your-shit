@@ -1,7 +1,12 @@
 # Design nuts
 
+**Design d'interactions humaines ?**
+
 https://m.signalvnoise.com/running-in-circles-aae73d79ce19
 https://m.signalvnoise.com/position-position-position-34b510a28ddc#.c52p6x2pl => jouer sur ses "faiblesses" pour en faire des forces. Rejoint mon idée qu'en étatn ouvert sur ses faiblesses, on découvre la force qui se cache derrière.
+Blueprint pour se focaliser
+https://www.radicalproduct.com/RadicalProductCanvas_v1.0.pdf
+La 2.2.0 dans mes docs !
 
 
 I AM A CONVIVIALIST SHIT DIGGER
@@ -38,8 +43,6 @@ Je designe pas grand chose. J'adore faire des observations sur le design par con
 Un peu comme un politique ne connaît pas vraiment la gestion mais est très entraîné à en parler.
 Ou alors c'est parce que je cherche des "UN-DESIGNED EXPERIENCES" => me creuser un max la tête pour ne pas avoir à designer, vivre un max.
 
-Blueprint pour se focaliser
-https://www.radicalproduct.com/RadicalProductCanvas_v1.0.pdf
 
 ## L'aspect spirituel du design
 
