@@ -1,3 +1,7 @@
+`Un-mindful VS mindful ingestion of potent food` => la différence entre s'engouffrer des dattes / du chocolat et déguster en laissant ce truc bizarre se passer en bouche (douleur, salivation intense, désir intense du shoot suivant) me paraît fondamentale. D'un côté on dompte la puissance, de l'autre on la laisse nous détruire de l'intérieur.
+=> Ne pas manger quand on est triste fatigué ou en colère ? 
+
+
 Notre cerveau cherche tout de suite à optimiser. L'idée qui l'obsède dans la seconde doit permettre de gagner de l'argent, rendre heureux, célèbre et bien entouré. Tout le rôle de la conscience est de donner du grain à moudre. Ralentir et faire réfléchir davantage.
 
 What are the forms of success ? Which ones do I care for if any ? (growth VS success)
