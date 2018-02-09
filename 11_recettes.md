@@ -1,3 +1,6 @@
+To my body: I am here To help, let's not overload ourselves with drama, shall we ?
+
+
 Raisonner c'est triturer jusqu'à ce que ça résonne.
 Deux règles de vie simples: auto validation et auto dérision. 
 

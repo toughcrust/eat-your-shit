@@ -1,6 +1,9 @@
 Je ne crois que ce que je vois: nope!
 Je tiens pour fiable ce que je vois, je crois tout: ce que je vois et ne vois pas
 
+What does it feel like to be really you? 
+
+
 Anomie: peur d'un chaos destructeur tapi aux frontières de la vie
 
 A narrative that feels good in an uncountable number of ways is a good "truth" to live by. If you are anything like me, exciting narratives are those "Nolan" like ones where crazy connections and cliffhangers uproot you, project you in a new form of life no one has ever explored.
