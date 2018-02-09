@@ -1,3 +1,7 @@
+Notre cerveau cherche tout de suite à optimiser. L'idée qui l'obsède dans la seconde doit permettre de gagner de l'argent, rendre heureux, célèbre et bien entouré. Tout le rôle de la conscience est de donner du grain à moudre. Ralentir et faire réfléchir davantage.
+
+What are the forms of success ? Which ones do I care for if any ? (growth VS success)
+
 **Matérialisme et vie excitante**
 C'est excitant d'être capable de mobiliser des moyens importants pour atteindre ses fins
 C'est excitant d'être capable de se passer complètement de moyen matériels, de recycler / détourner pour atteindre ses fins
