@@ -1,3 +1,8 @@
+**Matérialisme et vie excitante**
+C'est excitant d'être capable de mobiliser des moyens importants pour atteindre ses fins
+C'est excitant d'être capable de se passer complètement de moyen matériels, de recycler / détourner pour atteindre ses fins
+Je ne vois pas assez grand souvent (Bjarke Ingels https://www.amazon.com/Yes-More-Archicomic-Architectural-Evolution/dp/3836520109)
+
 J'avons une tendance naturelle au malheur. Trouvons des malheurs qui me rendent heureux.
 
 concilier:
