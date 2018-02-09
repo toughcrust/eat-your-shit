@@ -1,3 +1,5 @@
+Turn nocious addictions Into powerful skills. That is the only relevant life meaning. Does tell why but not what which is what i really care about. Make wonder here and now given a unique, moving blend of shit and wonder
+
 Je ne crois que ce que je vois: nope!
 Je tiens pour fiable ce que je vois, je crois tout: ce que je vois et ne vois pas
 
