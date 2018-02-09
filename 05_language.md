@@ -1,3 +1,6 @@
+Ce serait super cool si... Commencer ses phrases comme ça: ça met en joie, ça fait tomber les illusions, ça rend prêt à accueillir aussi bien les bonnes et mauvaises surprises.
+Sans langage, sans l'écriture et le cloud je n'arriverais pas à approfondir ma pensée. Là je peux retourner dans un état proche de là où ma pensée s'est précédemment arrêtée.
+
 # J'ai compris tous les mots
 
 J'ai bien compris céline.
