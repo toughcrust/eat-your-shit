@@ -1,3 +1,8 @@
+Je ne crois que ce que je vois: nope!
+Je tiens pour fiable ce que je vois, je crois tout: ce que je vois et ne vois pas
+
+Anomie: peur d'un chaos destructeur tapi aux frontières de la vie
+
 A narrative that feels good in an uncountable number of ways is a good "truth" to live by. If you are anything like me, exciting narratives are those "Nolan" like ones where crazy connections and cliffhangers uproot you, project you in a new form of life no one has ever explored.
 
 Ce qui est beau, pur et désirable dans l'amour: met en lumière, éveille, meut ce que je trouve beau en moi. Le tantra, de ce que j'en connais c'est de chercher d'abord avec soi l'amour sensuel, physique. Se l'offrir. Je vois dans la "cure par la parole" l'équivalent pour le mental. Il faut réussir à réaliser que je ne suis un être humain à part entière que ma parole a surtout vocation à m'aimer moi-même plutôt que les autres. Ce phénomène où je suis excité par les projets des autres et je les encourage, il serait bien plus efficace vis à vis de moi même: si j'arrive à me parler avec la même clarté que si c'était quelqu'un d'autre et m'écouter avec le même respect que si c'était qqun d'autre, ce serait bien plus nourrissant. Je n'attend pas désespérément du monde extérieur qu'il m'encourage celui que j'aimerais être, je ne voudrais pas désespérément influencer les autres et vivre par procuration. 
