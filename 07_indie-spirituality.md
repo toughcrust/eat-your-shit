@@ -7,9 +7,9 @@ Se poser la question de mon propre libre arbitre ne peut a priori que l'étendre
 What does it feel like to be a truly honest and genuine person? 
 
 Exciting narratives, those "Nolan" like ones where crazy connections and cliffhangers uproot you, project you in a new form of life no one has ever explored.
-Which seems to be what life is about. to keep balance, multiply contradictory narratives at once.
+Which seems to be what life is about. To keep balance, I should multiply narratives, keep them at once in my head.
 
-Ce qui est beau, pur et désirable dans l'amour: met en lumière, éveille, meut ce que je trouve beau en moi. Ne pas perdre de vue qu'on cherche le contact de l'autre pour se voir et se trouver beau. 
+Ce qui est beau, pur et désirable dans l'amour: met en lumière, éveille, meut ce que je trouve beau en moi. Ne pas perdre de vue qu'on cherche le contact de l'autre, de l'altérité pour se voir et se trouver beau. 
 
 Le tantra, de ce que j'en connais c'est de chercher d'abord avec soi l'amour sensuel, physique. Se l'offrir. Je vois dans la "cure par la parole" l'équivalent pour le mental. Il faut réussir à réaliser que je ne suis un être humain à part entière que ma parole a surtout vocation à m'aimer moi-même plutôt que les autres. Ce phénomène où je suis excité par les projets des autres et je les encourage, il serait bien plus efficace vis à vis de moi même: si j'arrive à me parler avec la même clarté que si c'était quelqu'un d'autre et m'écouter avec le même respect que si c'était qqun d'autre, ce serait bien plus nourrissant. Je n'attend pas désespérément du monde extérieur qu'il m'encourage celui que j'aimerais être, je ne voudrais pas désespérément influencer les autres et vivre par procuration. 
 
@@ -31,20 +31,21 @@ Comme le "mauvais cholésterol": pas mauvais en soi, il charrie simplement ce qu
 
 En fait ces 2 cosmogonies:
 - Foods of the gods: lente désintox de l'homme
-- L'histoire secrète du monde: lente incarnation et perte du contact avec le monde spirituel représenté dans les mythes
+- L'histoire secrète du monde: la conscience s'est transformée d'êtres connectés en êtres séparés à la vie intérieure développée
+
 sont excellente à garder à l'esprit: toutes les 2 ultra convaincantes, rendent compte de choses qui m'ont toujours parues absurdes (contes, légendes, mythes, religions) mais totalement pas en phases sur le plan "moral".
 Avec ces deux "guides contradictoires non prouvables" je trouv ma propre lierté d'expression. Comme les oxymores me permettent d'exprimer la dualité en moi de tout sentiment (S'il n'y avait pas de dualité, je serais même incapable de reconnaître un sentiment comme tel ! ce serait juste une attitude qui passerait inaperçue). 
 
 
-> It is almost as if the world gets calm as you keep calm yourself, and vice versa. Yet it would be absurd to imagine that one could actually control the course of events in that way because this would imply the belief that oneself alone is real and all else a figment of thought. But it convinces me more and more that there is a universe inside one, which contains Hitler and all forms of human madness as well as love and beauty.
+> It is almost as if the world gets calm as you keep calm yourself, and vice versa. 
 
 `Alan Watts on WWII`
 
-I'm the reincarnation of spirits I want to be, I want to meet. Je les convoque , je les invoque, je les aspire, je les fais vivre à travers moi.
+Je convoque des esprits, de vivants ou de morts, je les invoque, je les aspire, je les fais vivre à travers moi.
 
 # My very own indie sprirituality
 
-La vie est un combat ("Do not go gentle into that good night"). Vers la joie et dans la joie dés que possible. Savoir de quoi on est fait a pour seule utilité de connaître nos forces et nos peurs. Nos forces pour s'en servir, nos peurs pour les regarder en face et les voir fondre. Sachant cela, le combat et la joie se nourrissent des idées reçues dont on s'affranchit. Pour ce qui est de savoir notre part de libre arbitre, on voit bien à quel point cette question est con: à partir du moment où l'on engage le combat, avoir à l'esprit une telle question siffle la mort. Se poser la question du libre arbitre c'st choisir de se retirer du jeu.
+La vie est un combat ("Do not go gentle into that good night"). Vers la joie et dans la joie dés que possible. Savoir de quoi on est fait a pour seule utilité de connaître nos forces et nos peurs. Nos forces pour s'en servir, nos peurs pour les regarder en face et les voir fondre. Sachant cela, le combat et la joie se nourrissent des idées reçues dont on s'affranchit. 
 
 Conscience is the crisis room of issues of all sorts: existential questions, immediate survival
 
@@ -81,7 +82,7 @@ Tu peux alors devenir spectateur de tes propres pensées. Et même t'observer t'
 Il y a là un mouvement, une tension. Donc (en prenant avec des pincettes des choses aussi floues) "être spirituel"
 c'est "rester dans un mouvement de réflexion sur soi-même".
 
-Je regarde mes mains. Est-ce que c'est bien les miennes ? C'est quoi une main d'ailleurs ? Comment est apparu le mot main ?
+Je regarde mes mains. Est-ce que c'est bien les miennes ? C'est quoi moi ? C'est quoi une main ? Comment est apparu le mot main ?
 
 - Esprit scientifique = cette démarche spirituelle d'interrogation
 - Démarche scientifique = modèles mentaux sur la base d'observations répétées
@@ -113,7 +114,6 @@ Tant que je ne vois pas \(au sens où ça devient une évidence dans mes tripes\
 Car ne pas croire ou douter de quelque chose, notre inconscient l'interprète comme quelque chose de faux.
 
 ## Une bonne dose d'humour
-
 
 Se marrer ensemble, dans une situation que l'on s'est créée: qu'est-ce qui veut avoir plus d'importance ? Et si l'univers
 nous a créé dans un but bien différent, est-ce qu'il ne faut pas du coup lui rire à la gueule ? =&gt; ou le combattre !! sausage party !!

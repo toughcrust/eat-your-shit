@@ -46,7 +46,7 @@ Je crois qu'on a de plaisir qu'en réponse à une souffrance vécue ou imaginée
 Transformer les peurs et souffrances floues, imprécises en quelque chose de consistant. Pour les atténuer mais surtout pour faire émerger la joie dual => développer sa capacité à la joie.
 Cas extrême de la dépression: être à fleur de peau, hyper-conscient du fait d'être en vie et de ce que l'on imagine manquer
 
-**Profiter de sa tristesse, la laisser nous envahir comme on se laisse submerger par le plaisir ? Ne pas en avoir honte / l'ignorer mais l'écouter, la chérir presque comme signe d'humanité et de propension à la joie.**
+**Profiter de sa tristesse, la laisser nous envahir comme on se laisse submerger par le plaisir ? Ne pas en avoir honte / l'ignorer mais l'écouter, la chérir presque comme signe d'humanité et de potentialité de joie.**
 
 Très important: une nuance à apporter à cette discussion sur plaisir / douleur: l'inconfort.
 L'incofort du voyage, de l'effort sportif, du défi sont des "douleurs" qui rendent plus vivants. Donc:
@@ -55,7 +55,7 @@ L'incofort du voyage, de l'effort sportif, du défi sont des "douleurs" qui rend
 - accueillir le plaisir
 
 
-Le plus gros problème qui est un peu moteur de toutes ces reflexions c'est qu'une fois qu'on a appris que le plaisir c'est tout ce qui compte, qu'on peut très facilement s'auto illusionner / être influencé sur le plaisir qu'on recherche, il reste que des fois la sensation de plaisir ne vient pas quand on pense qu'elle devrait. Que faire dans ces cas là ?
 
-Mark manson: le plaisir d'en avoir rien à faire
-"Caring" psychologically happens when you don't actually take care right away.
+Désarroi de ne pas prendre du plaisir alors qu'on a la conviction qu'en meilleur santé on kifferait.
+
+Le plaisir d'en avoir rien à foutre.
