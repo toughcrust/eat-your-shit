@@ -1,5 +1,7 @@
 # Pain & cherries
 
+La jalousie, l'envie: bien plus souvent la douleur de se rendre compte que l'on a pas la force de réaliser nos **propres** désirs (qui peuvent être diamétralement opposés à ceux qui nous éclatent à la gueule) ou pire, on ne sait même pas ce que sont nos désirs, et on désire le désir.
+
 choses qui m'épanouissent: 
 - conseiller les autres en m'ouvrant intimement
 - explorer à fond et de manière ultra réaliste une idée pour aller à contre courant de ce qui se fait puis lâcher et passer le relai

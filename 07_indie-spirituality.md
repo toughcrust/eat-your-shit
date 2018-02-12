@@ -1,21 +1,20 @@
-Turn nocious addictions Into powerful skills. That is the only relevant life meaning. Does tell why but not what which is what i really care about. Make wonder here and now given a unique, moving blend of shit and wonder
+**Acceptance / letting go**: ça me fait beaucoup de bien mais je ressens une lutte en moi: contre le discernement, contre le désir de faire, réaliser, réussir. Comment concilier ? Est-ce que ces choses sont sur des plans comparables ?
 
-Je ne crois que ce que je vois: nope!
-Je tiens pour fiable ce que je vois, je crois tout: ce que je vois et ne vois pas
+Je crois en tout pour m'illusionner le moins possible. Ne pas croire ou croire à des degrés établis c'est se reposer davantage sur la croyance. Il n'empêche que mon corps estime l'adéquation, la fiabilité des croyances.
 
-What does it feel like to be really you? 
+Se poser la question de mon propre libre arbitre ne peut a priori que l'étendre. Postuler une quelconque limitation du libre arbitre impose une restriction volontaire de ce dernier. 
 
+What does it feel like to be a truly honest and genuine person? 
 
-Anomie: peur d'un chaos destructeur tapi aux frontières de la vie
+Exciting narratives, those "Nolan" like ones where crazy connections and cliffhangers uproot you, project you in a new form of life no one has ever explored.
+Which seems to be what life is about. to keep balance, multiply contradictory narratives at once.
 
-A narrative that feels good in an uncountable number of ways is a good "truth" to live by. If you are anything like me, exciting narratives are those "Nolan" like ones where crazy connections and cliffhangers uproot you, project you in a new form of life no one has ever explored.
+Ce qui est beau, pur et désirable dans l'amour: met en lumière, éveille, meut ce que je trouve beau en moi. Ne pas perdre de vue qu'on cherche le contact de l'autre pour se voir et se trouver beau. 
 
-Ce qui est beau, pur et désirable dans l'amour: met en lumière, éveille, meut ce que je trouve beau en moi. Le tantra, de ce que j'en connais c'est de chercher d'abord avec soi l'amour sensuel, physique. Se l'offrir. Je vois dans la "cure par la parole" l'équivalent pour le mental. Il faut réussir à réaliser que je ne suis un être humain à part entière que ma parole a surtout vocation à m'aimer moi-même plutôt que les autres. Ce phénomène où je suis excité par les projets des autres et je les encourage, il serait bien plus efficace vis à vis de moi même: si j'arrive à me parler avec la même clarté que si c'était quelqu'un d'autre et m'écouter avec le même respect que si c'était qqun d'autre, ce serait bien plus nourrissant. Je n'attend pas désespérément du monde extérieur qu'il m'encourage celui que j'aimerais être, je ne voudrais pas désespérément influencer les autres et vivre par procuration. 
+Le tantra, de ce que j'en connais c'est de chercher d'abord avec soi l'amour sensuel, physique. Se l'offrir. Je vois dans la "cure par la parole" l'équivalent pour le mental. Il faut réussir à réaliser que je ne suis un être humain à part entière que ma parole a surtout vocation à m'aimer moi-même plutôt que les autres. Ce phénomène où je suis excité par les projets des autres et je les encourage, il serait bien plus efficace vis à vis de moi même: si j'arrive à me parler avec la même clarté que si c'était quelqu'un d'autre et m'écouter avec le même respect que si c'était qqun d'autre, ce serait bien plus nourrissant. Je n'attend pas désespérément du monde extérieur qu'il m'encourage celui que j'aimerais être, je ne voudrais pas désespérément influencer les autres et vivre par procuration. 
 
 Idée marrante: la vie, les rêves c'est de l'hypnose. Je suis un hypnotiseur de ce corps (du "subconscient") et il y en a d'autres !.
 Je suis: un observateur + un hypnotiseur par le verbe. 
-
-I tend to really take seriously people who don't take themselves seriously. Am I a joke when I'm too serious ?
 
 Only thing that matter: having stuff to share in a party with like minded open people. What parties ?
 - Reggae festival
@@ -37,7 +36,7 @@ sont excellente à garder à l'esprit: toutes les 2 ultra convaincantes, rendent
 Avec ces deux "guides contradictoires non prouvables" je trouv ma propre lierté d'expression. Comme les oxymores me permettent d'exprimer la dualité en moi de tout sentiment (S'il n'y avait pas de dualité, je serais même incapable de reconnaître un sentiment comme tel ! ce serait juste une attitude qui passerait inaperçue). 
 
 
-> I have faith that something good will come out of this in the end like the phoenix out of the fire. But in the meantime it’s almost impossible to know how to plan for the future. Things here are as good as can be expected, but under such strains you never know when people are going to go crazy! Sometimes I get the queerest feeling that things going on in the world around one, are in some odd way reflections of things happening in the depths of one’s own mind. It is almost as if the world gets calm as you keep calm yourself, and vice versa. Yet it would be absurd to imagine that one could actually control the course of events in that way because this would imply the belief that oneself alone is real and all else a figment of thought. But it convinces me more and more that there is a universe inside one, which contains Hitler and all forms of human madness as well as love and beauty.
+> It is almost as if the world gets calm as you keep calm yourself, and vice versa. Yet it would be absurd to imagine that one could actually control the course of events in that way because this would imply the belief that oneself alone is real and all else a figment of thought. But it convinces me more and more that there is a universe inside one, which contains Hitler and all forms of human madness as well as love and beauty.
 
 `Alan Watts on WWII`
 

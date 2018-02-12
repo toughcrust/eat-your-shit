@@ -1,14 +1,12 @@
 #### Overthink and let come
 
 
-> **[info] Quoi que c'est ?**
+> **[info] Quoi le foutre c'est ?**
 
-> Principalement mon manuel de _"self / life hacking"_ à tendance minimalistico-convivialiste.
+> Manuel perso d'auto bircolage minimalistico-convivialiste.
 
 Et aussi
 
-> **[success] Pas mal de branlette intellectuelle**
+> **[success] De la branlette intellectuelle**
 
 > Parce que ça fait du bien là où ça fait mal 🎉.
-
-_Coming soon (lol): un super montage photo comme si je faisais un flyer ou une couv' de vrai bouquin en papier d'arbre_
