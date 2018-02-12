@@ -41,7 +41,6 @@ Avec ces deux "guides contradictoires non prouvables" je trouv ma propre lierté
 
 `Alan Watts on WWII`
 
-Je convoque des esprits, de vivants ou de morts, je les invoque, je les aspire, je les fais vivre à travers moi.
 
 # My very own indie sprirituality
 
