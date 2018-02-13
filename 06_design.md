@@ -2,7 +2,7 @@
 
 The most useful rules are those you know when to break.
 
-
+Our natural biases can range from the inconsequential—cognitive shortcuts that help us deal with the world—to the roots of much larger societal issues, like gender bias and pay inequality. Research has shown when teams and leaders operate without recognizing existing biases, it affects company culture. As designers, we are not immune. Our biases can impact the products we design.
 
 **Holy shift - awareness shifting design**
 
