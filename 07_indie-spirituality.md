@@ -1,15 +1,19 @@
-**Acceptance / letting go**: ça me fait beaucoup de bien mais je ressens une lutte en moi: contre le discernement, contre le désir de faire, réaliser, réussir. Comment concilier ? Est-ce que ces choses sont sur des plans comparables ?
+Discernement, rage, gratitude, relâchement, acceptation: et si toutes ces attitudes, qui a leur manière font du bien, peuvent coexister ? Sur des plans différents (émotion, sentiments, corps, mental, "esprit", ...)
 
-Je crois en tout pour m'illusionner le moins possible. Ne pas croire ou croire à des degrés établis c'est se reposer davantage sur la croyance. Il n'empêche que mon corps estime l'adéquation, la fiabilité des croyances.
+Je crois en tout pour m'illusionner le moins possible. Ne pas croire ou croire à des degrés établis c'est se reposer davantage sur la croyance. Il n'empêche que mon corps estime l'adéquation, la fiabilité des croyances, dés qu'une décision vitale est nécessaire.
 
 Se poser la question de mon propre libre arbitre ne peut a priori que l'étendre. Postuler une quelconque limitation du libre arbitre impose une restriction volontaire de ce dernier. 
 
 What does it feel like to be a truly honest and genuine person? 
 
 Exciting narratives, those "Nolan" like ones where crazy connections and cliffhangers uproot you, project you in a new form of life no one has ever explored.
-Which seems to be what life is about. To keep balance, I should multiply narratives, keep them at once in my head.
+Which seems to be what life is about. To keep balance, I should multiply those narratives, keep them at once and alive in my head.
 
 Ce qui est beau, pur et désirable dans l'amour: met en lumière, éveille, meut ce que je trouve beau en moi. Ne pas perdre de vue qu'on cherche le contact de l'autre, de l'altérité pour se voir et se trouver beau. 
+
+Fondamentalement, je tourne souvent autoir de la question "which rules should I follow ?". En fait "What rules do I want ?" est plus facile et plus intéressante
+
+---
 
 Le tantra, de ce que j'en connais c'est de chercher d'abord avec soi l'amour sensuel, physique. Se l'offrir. Je vois dans la "cure par la parole" l'équivalent pour le mental. Il faut réussir à réaliser que je ne suis un être humain à part entière que ma parole a surtout vocation à m'aimer moi-même plutôt que les autres. Ce phénomène où je suis excité par les projets des autres et je les encourage, il serait bien plus efficace vis à vis de moi même: si j'arrive à me parler avec la même clarté que si c'était quelqu'un d'autre et m'écouter avec le même respect que si c'était qqun d'autre, ce serait bien plus nourrissant. Je n'attend pas désespérément du monde extérieur qu'il m'encourage celui que j'aimerais être, je ne voudrais pas désespérément influencer les autres et vivre par procuration. 
 
@@ -81,7 +85,7 @@ Tu peux alors devenir spectateur de tes propres pensées. Et même t'observer t'
 Il y a là un mouvement, une tension. Donc (en prenant avec des pincettes des choses aussi floues) "être spirituel"
 c'est "rester dans un mouvement de réflexion sur soi-même".
 
-Je regarde mes mains. Est-ce que c'est bien les miennes ? C'est quoi moi ? C'est quoi une main ? Comment est apparu le mot main ?
+Je regarde mes mains. Est-ce que c'est bien les miennes ? C'est quoi moi ? C'est quoi une main ? Comment est apparu le mot main ? Commnt suis-je apparu ?
 
 - Esprit scientifique = cette démarche spirituelle d'interrogation
 - Démarche scientifique = modèles mentaux sur la base d'observations répétées
@@ -239,7 +243,7 @@ Et si le corps est "high on soul" ? Cet élan vital qui le meut, le corps ou ses
 It's not a participatory universe at all. The world presents me what it wants. My freedom is to refuse to
 care and demand something else. Cultivate the mindset to let it arise. The body follows. It is sucked into being more than what it is on its own.
 
-Dans le lien entre plaisir santé mentale et spritualite: éprouver de plus en plus de désir d'admiration et de plaisir à se côtoyer soi même.
+Eprouver de plus en plus de désir et de plaisir à se côtoyer.
 Et s'ouvrir pour aspirer le meilleur du monde ext
 Seul cosmogonie qui ait un sens pour moi: nous expérimentons ce que nous avons d'abord imaginé.
 
@@ -308,7 +312,7 @@ pour le comment:
   tension'\)
 * welcome / invoke the pleasurable
 * empower calls for action =&gt; ces choses semblent être de l'ordre du libre arbitre.
-Si l'on ne croit pas au libre arbitre à ce niveau là, je pense qu'on tue en effet le libre arbitre
+
 
 I need to, I want, I should reasonably, It's my spiritual inclination and profund desire to hope for
 crazy stuff \(being a breatharian\). I'd better, it's useful, it feels good \(being here and now\),
@@ -319,11 +323,7 @@ Ce qui parle plus à mon instinct: la force de la méditation, de la sagesse, c'
 fragmentations **par les yeux **d'une autre. C'est la perspective, le dialogue, la capacité d'y revenir qui fait une richesse ?
 
 
-spiritualité:
-souvent pensée en termes de "which rules should I follow ?"
-je pense que c'est mieux de réfléchir à:
-"which seem to be the possible rules ?" et plus important "What rules do I want ?"
-parce que "which rules should I follow ?" est sûrement une question sans fait et doit de toutes façons passer par "What rules do I want ?"
+
 
 Pourquoi fondamentalement je ne fais pas confianec à la techno / le "progrès" aveugle pour régler les "problèmes de l'humanité" => j
 e crois soit à faire confiance à des mécanismes robustes qui n'ont pas besoin de surveillance / intervantion du tout
@@ -334,24 +334,7 @@ emps le plus de stimulis et d'intérêts: nous mêmes. Or on passe notre temps �
 trop et se lancer à corps perdu dans le travail, on critique les autres pour leur égoisme quand on fait pareil
 (l'environnement par ex) => ne me dites pas que de base la conscience humaine conduit à "tout va pour le mieux dans le meilleur des mondes".
 
-Intelligence / supériorité / responsabilité
-l'intelligence: voir ce qui est. lié à la conscience: en mangeant différemment je me sens davantage conscient, davantage intelligent.
-je crois à une forme d'intelligence supérieure qui englobe la mienne. Pareil pour la conscience ? même en étant matérialiste,
-la matière contiendrait elle même le code source d'une intelligence / conscience modèle !! la potentialité de la
-conscience / intelligence c'est ptet ça dieu.
-tout ça pour dire que je pense:
-1/ qu'il faut se méfier de son intelligence, qu'elle est incomplète et quoiqu'il arrive plus forte co-construite
-(les solutions technologiques élaborées pour "sauver la planète" je les sens pas)
-2/ que c'est bon de toujours la repousser et qu'au contraire il faut aussi se méfier d'une intelligence supérieure
-qui nous dépasse => l'avion c'est le progrès, les problèmes liés se résoudront d'eux-mêmes. (merci stefou pour ce topic)
 
-reconnaitre que nous sommes:
-des animaux
-imparfaits
-contradictoires
-qu'il faut se donner les conditions pour agir décemment
-que nous ne faisons qu'effleurer les choses
-l'intelligence c'est de voir / manifester ce qui est
 
 Je dis que je ne suis que conscience, que mêmes mes pensées sont de l'ordre du corps. Je ne suis que cette chose dans
 laquelle émerge des objets, comme un écran de cinéma vierge. Mais ça veut que cette chose qui n'est pas moi et

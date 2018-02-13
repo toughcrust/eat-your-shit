@@ -1,6 +1,16 @@
 Non aux court-circuits 
 ======================
 
+reconnaitre que nous sommes:
+des animaux
+imparfaits
+contradictoires
+qu'il faut se donner les conditions pour agir décemment
+que nous ne faisons qu'effleurer les choses
+l'intelligence c'est de voir / manifester ce qui est
+
+
+
 Pour se rendre compte de l'utilité de l'état: vivre de 16 à 18 ans sans ?
 
 sur comment notre cerveau est super fort, super flexible (on fait du big data, de l'ordi quantique en permanence pour éajuster nos décisiosn en fonction de ce qu'il se passe: on réévalue nos choix passés) et pourquoi on peut s'attacher à des principes cons
