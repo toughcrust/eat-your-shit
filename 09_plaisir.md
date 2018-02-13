@@ -1,5 +1,8 @@
 # Pain & cherries
 
+It seems like my body always tend to worry and get unhappy. But a part of me can **trick it** into being happy. C'est de la manipulation. **Mais en fait la meilleure manipulation c'est quand on finit par trouver les mots qui ont une résonnance profonde pour tous**.
+
+
 La jalousie, l'envie: bien plus souvent la douleur de se rendre compte que l'on a pas la force de réaliser nos **propres** désirs (qui peuvent être diamétralement opposés à ceux qui nous éclatent à la gueule) ou pire, on ne sait même pas ce que sont nos désirs, et on désire le désir.
 
 choses qui m'épanouissent: 
