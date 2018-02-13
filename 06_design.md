@@ -1,5 +1,9 @@
 # Design nuts
 
+The most useful rules are those you know when to break.
+
+
+
 **Holy shift - awareness shifting design**
 
 **Design d'interactions humaines ?**
