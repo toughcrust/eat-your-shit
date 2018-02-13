@@ -1,8 +1,35 @@
+Consciousness is simply the light by which the contours of mind and body are known [...] Making this discovery, again and again, is the basis of spiritual life. **Sam Harris**
+
+> Pleasure is the only thing worth having a theory about
+`Oscar Wilde`
+
+Absolument tout ce qu'on peut rechercher dans la vie tourne autour de la recherche du plaisir
+Plaisir et douleur sont les uniques choses qui ont une consistance. **Derrière une morale rigoriste se cache une recherche de plaisir voilée, qui ne dit pas son nom**.
+
+> La frustation existentielle n'est pas pathologique
+`Frankl`
+
+Rien ne dit qu'il n'y aura que du plaisir même si c'est le seul guide ...
+
+Se poser la question de mon propre libre arbitre ne peut a priori que l'étendre. Postuler une quelconque limitation du libre arbitre impose une restriction volontaire de ce dernier. 
+
+Mon libre arbitre le plus profond: faire la lumière sur tel ou tel objet, sentiment, whatever qui se présente à ma conscience.
+
+Le rire peut englober la gravité, la joie illuminer la tristesse
+
+Quand tu doutes de l'attitude à adopter, prends celle qui sublime, permet l'autre 
+
+En disant ça je me rends compte que l'attitude à adopter c'est ce qu'on cherche tous. Quand on parle de sens de la vie, c'est ça qu'on cherche vraiment. On s'en tout de si y'a un sens à la vie à part si on arrive pas à adopter l'attitude qu'on voudrait 
+
+Plutôt que système digestif du corps je verrais bien la conscience comme un professeur attentionné qui apprend en même temps qu'il enseigne. Qui ne cherche pas à inculquer mais à donner ses propres clés de compréhension alors même qu'il les découvre.
+
+----
+
 Discernement, rage, gratitude, relâchement, acceptation: et si toutes ces attitudes, qui a leur manière font du bien, peuvent coexister ? Sur des plans différents (émotion, sentiments, corps, mental, "esprit", ...)
 
 Je crois en tout pour m'illusionner le moins possible. Ne pas croire ou croire à des degrés établis c'est se reposer davantage sur la croyance. Il n'empêche que mon corps estime l'adéquation, la fiabilité des croyances, dés qu'une décision vitale est nécessaire.
 
-Se poser la question de mon propre libre arbitre ne peut a priori que l'étendre. Postuler une quelconque limitation du libre arbitre impose une restriction volontaire de ce dernier. 
+
 
 What does it feel like to be a truly honest and genuine person? 
 
@@ -71,10 +98,7 @@ j'ai juste besoin de matérialiser la scuplture de moi même.
 
 Take a still higher / bird's eye view point of view: get ready for when rules change.
 
-Sur ce qu'est la conscience:
-> Consciousness is simply the light by which the contours of mind and body are known [...] Making this discovery, again and again, is the basis of spiritual life.
 
-_Sam Harris_
 
 When you suddenly have thoughts the game designer would have while you're actually planning:
 - Why do we have a compulsion to love and have children

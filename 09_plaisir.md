@@ -31,19 +31,10 @@ Trouver les bonnes contraintes pour devenir une meilleure personne et sublimer s
 
 plus perturbant que ne pas trouver de sens à la vie: **ne pas prendre de plaisir à ce que l'on imagine prendre du plaisir / ne pas savoir où trouver le plaisir**. Pour moi c'est l'incapacité à profiter de ce que j'ai, d'aller chercher ce qui me donne envie qui me met dans cette quête de sens. Mais en fait c'est le plaisir qui m'intéresse
 
-> Pleasure is the only thing worth having a theory about
-`Oscar Wilde`
 
-Absolument tout ce qu'on peut rechercher dans la vie tourne autour de la recherche du plaisir
-Plaisir et douleur sont les uniques choses qui ont une consistance. **Derrière une morale rigoriste se cache une recherche de plaisir voilée, qui ne dit pas son nom**.
-
-> La frustation existentielle n'est pas pathologique
-`Frankl`
 
 > He who has a why to live can bear almost any how
 `Nietzsche`
-
-**C'est pas honteux ni même fondamentalement anormal de souffrir. Ce serait même plutôt l'inverse.**
 
 Je crois qu'on a de plaisir qu'en réponse à une souffrance vécue ou imaginée.
 Transformer les peurs et souffrances floues, imprécises en quelque chose de consistant. Pour les atténuer mais surtout pour faire émerger la joie dual => développer sa capacité à la joie.

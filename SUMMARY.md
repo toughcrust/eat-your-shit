@@ -7,8 +7,9 @@
 * [Oui aux circuits courts](04_oui-aux-circuits-courts.md)
 * [Language](05_language.md)
 * [Design](06_design.md)
-* [Indie spirituality](07_indie-spirituality.md)
+* [Indie mind tricks](07_indie-spirituality.md)
 * [Incarnations ~ incantations](08_incarnations-incantations.md)
 * [Plaisir](09_plaisir.md)
 * [L'évangile du job](10_evangile-du-job.md)
 * [Recettes](11_recettes.md)
+
