@@ -8,8 +8,7 @@ Plaisir et douleur sont les uniques choses qui ont une consistance. **Derrière 
 
 > La frustation existentielle n'est pas pathologique
 `Frankl`
-
-Rien ne dit qu'il n'y aura que du plaisir même si c'est le seul guide ...
+=> Rien ne dit qu'il n'y aura que du plaisir même si c'est le seul guide ...
 
 Se poser la question de mon propre libre arbitre ne peut a priori que l'étendre. Postuler une quelconque limitation du libre arbitre impose une restriction volontaire de ce dernier. 
 
@@ -22,6 +21,8 @@ Quand tu doutes de l'attitude à adopter, prends celle qui sublime, permet l'aut
 En disant ça je me rends compte que l'attitude à adopter c'est ce qu'on cherche tous. Quand on parle de sens de la vie, c'est ça qu'on cherche vraiment. On s'en tout de si y'a un sens à la vie à part si on arrive pas à adopter l'attitude qu'on voudrait 
 
 Plutôt que système digestif du corps je verrais bien la conscience comme un professeur attentionné qui apprend en même temps qu'il enseigne. Qui ne cherche pas à inculquer mais à donner ses propres clés de compréhension alors même qu'il les découvre.
+
+Ceux qui prônent des voies vers la joie, le bonheur, parlent souvent depuis une position, un statut particulier (être plus malin que les autres, se retirer de la vie ordinaire, ...). J'ai besoin que ce soit compatible avec ma vie ici et maintenant. Ce que j'en tire c'est **refuser de ne pas poursuivre mes désirs, aussi absurdes soient-ils**.
 
 ----
 
