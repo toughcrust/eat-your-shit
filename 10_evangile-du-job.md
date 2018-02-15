@@ -1,5 +1,7 @@
 **A professional is an amateur who never quit.** (someone else)
 
+**Maïeutique, concrétisation des inconscients des imaginaires collectifs.**
+
 > Deep work and mindfulness share a commitment to being intentional with your attention. We don’t always realize how much we allow our attention to be claimed and manipulated and batted around like a toy by outside forces. When you sit down to, say, meditate, or focus intensely on one hard work task, the resistance you feel at first helps underscore this state of affairs.
 
 *Cal Newport*
