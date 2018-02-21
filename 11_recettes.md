@@ -1,3 +1,6 @@
+Nobody wins: "hey toi l'émotion, le principe de vie, le désir, la peur. merci de ne pas prendre tout l'espace, on voit plus le spectacle."
+As soon as an emotion, a feeling, and idea starts to take over, let it be, dig it, but allow it to be wrapped with a balanced attitude.
+
 To my body: I am here To help, let's not overload ourselves with drama, shall we ?
 
 Au delà de ce à quoi je ressemble vraiment et de mon intelligence effective je ressens comme une pression interne qui cherche à me rendre plus beau, à faire bouger les contraintes. Que se passe t il si je detends mon corps pour laisser rayonner cette force ? De la même manière c'est fascinant de se poser en récepteur de ce qu emettent les autres. Derrière un physique on ressent une dimension ou des dimensions de beauté d'accomplissement qui sont orthogonales
