@@ -1,3 +1,5 @@
+**De la tendresse pour moi et les autres**
+
 > Consciousness is simply the light by which the contours of mind and body are known [...] Making this discovery, again and again, is the basis of spiritual life. 
 
 -
