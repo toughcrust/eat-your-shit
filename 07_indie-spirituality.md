@@ -1,18 +1,16 @@
-Consciousness is simply the light by which the contours of mind and body are known [...] Making this discovery, again and again, is the basis of spiritual life. **Sam Harris**
+> Consciousness is simply the light by which the contours of mind and body are known [...] Making this discovery, again and again, is the basis of spiritual life. 
+
+-
 
 > Pleasure is the only thing worth having a theory about
-`Oscar Wilde`
 
-Absolument tout ce qu'on peut rechercher dans la vie tourne autour de la recherche du plaisir
-Plaisir et douleur sont les uniques choses qui ont une consistance. **Derrière une morale rigoriste se cache une recherche de plaisir voilée, qui ne dit pas son nom**.
+Ce qui a une consistance, ce sont le plaisir et la douleur. Derrière une morale rigoriste se cache une recherche de plaisir voilée, qui ne dit pas son nom. Les désirs de plaisir n'ont pas de raison d'être réalistes:
 
 > La frustation existentielle n'est pas pathologique
-`Frankl`
-=> Rien ne dit qu'il n'y aura que du plaisir même si c'est le seul guide ...
 
-Se poser la question de mon propre libre arbitre ne peut a priori que l'étendre. Postuler une quelconque limitation du libre arbitre impose une restriction volontaire de ce dernier. 
+Se poser la question de ma propension à la joie ne peut a priori que l'étendre. Postuler une quelconque limitation impose une restriction volontaire. C'est la même chose pour le libre arbitre. 
 
-Mon libre arbitre le plus profond: faire la lumière sur tel ou tel objet, sentiment, whatever qui se présente à ma conscience.
+Mon libre arbitre le plus profond: me concentrer, faire la lumière sur tel ou tel objet, sentiment, whatever qui se présente à ma conscience. Prendre le temps.
 
 Le rire peut englober la gravité, la joie illuminer la tristesse
 
@@ -26,13 +24,12 @@ Ceux qui prônent des voies vers la joie, le bonheur, parlent souvent depuis une
 
 ----
 
-Discernement, rage, gratitude, relâchement, acceptation: et si toutes ces attitudes, qui a leur manière font du bien, peuvent coexister ? Sur des plans différents (émotion, sentiments, corps, mental, "esprit", ...)
 
 Je crois en tout pour m'illusionner le moins possible. Ne pas croire ou croire à des degrés établis c'est se reposer davantage sur la croyance. Il n'empêche que mon corps estime l'adéquation, la fiabilité des croyances, dés qu'une décision vitale est nécessaire.
 
 
 
-What does it feel like to be a truly honest and genuine person? 
+What does it feel like to deeply love yourself? 
 
 Exciting narratives, those "Nolan" like ones where crazy connections and cliffhangers uproot you, project you in a new form of life no one has ever explored.
 Which seems to be what life is about. To keep balance, I should multiply those narratives, keep them at once and alive in my head.

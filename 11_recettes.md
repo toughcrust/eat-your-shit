@@ -1,20 +1,24 @@
+## Cool à retravailler
 Nobody wins: "hey toi l'émotion, le principe de vie, le désir, la peur. merci de ne pas prendre tout l'espace, on voit plus le spectacle."
+
+Au delà de ce à quoi je ressemble vraiment et de mon intelligence effective je ressens comme une pression interne qui cherche à me rendre plus beau, à faire bouger les contraintes. Que se passe t il si je detends mon corps pour laisser rayonner cette force ? De la même manière c'est fascinant de se poser en récepteur de ce qu emettent les autres. Derrière un physique on ressent une dimension ou des dimensions de beauté d'accomplissement qui sont orthogonales
+
+Deux règles de vie simples: auto validation et auto dérision => Ou plus simplement l'amour de soi ?  
+
+
+## Bof
 As soon as an emotion, a feeling, and idea starts to take over, let it be, dig it, but allow it to be wrapped with a balanced attitude.
 
 To my body: I am here To help, let's not overload ourselves with drama, shall we ?
 
-Au delà de ce à quoi je ressemble vraiment et de mon intelligence effective je ressens comme une pression interne qui cherche à me rendre plus beau, à faire bouger les contraintes. Que se passe t il si je detends mon corps pour laisser rayonner cette force ? De la même manière c'est fascinant de se poser en récepteur de ce qu emettent les autres. Derrière un physique on ressent une dimension ou des dimensions de beauté d'accomplissement qui sont orthogonales
 
-Raisonner c'est triturer jusqu'à ce que ça résonne.
-Deux règles de vie simples: auto validation et auto dérision. 
+
 
 `Un-mindful VS mindful ingestion of potent food` => la différence entre s'engouffrer des dattes / du chocolat et déguster en laissant ce truc bizarre se passer en bouche (douleur, salivation intense, désir intense du shoot suivant) me paraît fondamentale. D'un côté on dompte la puissance, de l'autre on la laisse nous détruire de l'intérieur.
 => Ne pas manger quand on est triste fatigué ou en colère ? 
 
 
 Notre cerveau cherche tout de suite à optimiser. L'idée qui l'obsède dans la seconde doit permettre de gagner de l'argent, rendre heureux, célèbre et bien entouré. Tout le rôle de la conscience est de donner du grain à moudre. Ralentir et faire réfléchir davantage.
-
-What are the forms of success ? Which ones do I care for if any ? (growth VS success)
 
 **Matérialisme et vie excitante**
 C'est excitant d'être capable de mobiliser des moyens importants pour atteindre ses fins
@@ -239,8 +243,9 @@ Ca dure pas et ça nécessite un effort pour y revenir. Et on doute. PArce que c
 Peut on simplement garder à l'esprit "Je t'aime mais là tu fais de la merde, Je t'aime mais là tu es un danger pour moi." Et pourquoi de base les aime-t-on ? parce que y'a rien de plus ouf que de ressentir un plaisir partagé avec qqun d'autre. Don de base je les accueille (== j'aime) pour faire émerger ce plaisir partagé. "Je t'aime mais tu es con" => ça me déploie dans mon entiereté, dans mes contradictions, dans mon besoin de respect et de rejet de l'autorité.
 La grande difficulté de la pensée humaine: GARDER A L'ESPRIT !! parce que ça part ça s'envole, trop de choses à penser. Et donc on se normalise, nous-mêmes, par rapport aux autres etc ...
 
-dans la discussion avec soi ou les autres: toujours utile et enrichissant de déployer sa pensée à "voix haute" sans honte (et en se laissant même la possibilité d'exprimer ses réticences à surpasser sa honte), sans chercher à cacher les pistes mal dégrossies / moins séduisantes / contradictoires. Bref tout déployer comme un plan avant l'attaque, jouer cartes sur tables. Seul moment où on ne veut pas faire ça: quand on pense que l'autre n'est pas en mesure de respecter une telle honnêteté
+dans la discussion avec soi ou les autres: toujours utile et enrichissant de déployer sa pensée à "voix haute" sans honte (et en se laissant même la possibilité d'exprimer ses réticences à surpasser sa honte), sans chercher à cacher les pistes mal dégrossies / moins séduisantes / contradictoires. Bref tout déployer comme un plan avant l'attaque, jouer cartes sur tables.
 
+J'ai besoin d'une raison logique pour laisser l'amour inconditionnel m'envahir. Peut-être en réfléchissant sérieusement à la joie que je recherche. Ca c'est certain je recherche la joie. Ma joie pourrait-elle être pleine si elle n'est pas née de l'amour le plus pur, le plus infantile, immaculé ? Je ne le crois pas. Car j'ai l'intuition que la joie est le résultat d'une attitude, pas de conditions d'existences données. Et cette joie de me semble être rien d'autre que l'amour pour moi, pour les autres, pour la vie. 
 
 
 
