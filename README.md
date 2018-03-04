@@ -3,7 +3,7 @@
 
 > **[info] Quoi le foutre c'est ?**
 
-> Manuel perso d'auto bircolage minimalistico-convivialiste.
+> Manuel perso d'auto bricolage minimalistico-convivialiste.
 
 Et aussi
 

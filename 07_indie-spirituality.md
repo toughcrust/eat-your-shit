@@ -1,3 +1,5 @@
+Ma définition de la spiritualité: la pensée qui suit le vertige d'une question telle que "Qu'est-ce que je fais là ? WTF is I BTW ???"
+
 **De la tendresse pour moi et les autres**
 
 > Consciousness is simply the light by which the contours of mind and body are known [...] Making this discovery, again and again, is the basis of spiritual life. 
