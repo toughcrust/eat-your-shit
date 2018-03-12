@@ -31,7 +31,7 @@ Ceux qui prônent des voies vers la joie, le bonheur, parlent souvent depuis une
 
 Je crois en tout pour m'illusionner le moins possible. Ne pas croire ou croire à des degrés établis c'est se reposer davantage sur la croyance. Il n'empêche que mon corps estime l'adéquation, la fiabilité des croyances, dés qu'une décision vitale est nécessaire.
 
-
+**On se pose souvent la question "Est-ce que ce que j'imagine est possible ?". La vraie question est "Est-ce que je peux imaginer quelque chose qui est impossible?"**
 
 What does it feel like to deeply love yourself? 
 
