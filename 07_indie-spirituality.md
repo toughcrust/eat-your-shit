@@ -1,5 +1,8 @@
 Ma définition de la spiritualité: la pensée qui suit le vertige d'une question telle que "Qu'est-ce que je fais là ? WTF is I BTW ???"
 
+Dans ma spiritualité, c'est l'inverse de ce qui est recherché d'habitude: je cherche à me libérer de tout esprit, de toute influence de l'univers. Des déterminismes, des désirs extérieurs. Par la méditation je ne me connecte pas à l'univers: j'expulse, je lui rends ce qu'il met en moi.
+Vouloir se connecter à une partie de soi qui serait loin est un non sens source de souffrance, d'incompréhension, d'illusion, de doutes. Par définition MOI m'est accessible. Plus je dépollue t mieux / davantage je me vois. Il faut que je me dépollue de l'univers.
+
 **De la tendresse pour moi et les autres**
 
 > Consciousness is simply the light by which the contours of mind and body are known [...] Making this discovery, again and again, is the basis of spiritual life. 
