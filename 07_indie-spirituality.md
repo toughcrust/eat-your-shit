@@ -1,4 +1,4 @@
-**This whole thing is a prank gone wrong !**
+**This whole thing is a play/prank/hack gone wrong !**
 
 Ma définition de la spiritualité: la pensée qui suit le vertige d'une question telle que "Qu'est-ce que je fais là ? WTF is I BTW ???"
 
