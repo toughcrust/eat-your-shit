@@ -1,3 +1,5 @@
+**This whole thing is a prank gone wrong !**
+
 Ma définition de la spiritualité: la pensée qui suit le vertige d'une question telle que "Qu'est-ce que je fais là ? WTF is I BTW ???"
 
 Dans ma spiritualité, c'est l'inverse de ce qui est recherché d'habitude: je cherche à me libérer de tout esprit, de toute influence de l'univers. Des déterminismes, des désirs extérieurs. Par la méditation je ne me connecte pas à l'univers: j'expulse, je lui rends ce qu'il met en moi.
