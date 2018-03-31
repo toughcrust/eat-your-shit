@@ -119,8 +119,6 @@ Somehow related: what's wrong with willing to be god ? I am wind, earth, emptyne
 La beauté de la vie est dans le précieux, le fragile, l'insoupçonné, l'éphémère, le subtile. C'est con de se planter à rêver à quelque chose qui en fait est naze, donc paradoxalement ça vaut le coup d'explorer assez "brutalement" la vie pour savoir ce qui nous fait rêver exactement ou pas. Juste, ne pas détruire (exploration non invasive).
 
 Quand je pense à la métenpsychose, au faut d'avoir vécu plusieurs vie, à l'astrologie qui nous confère des archétypes à des poids relatifs plus ou moins élevés, j'ai cette même sensation que lorsqu'on découvre une vérité caché qui a soudain l'air évidente. Ca explique tellement de choses sur comment on se comporte malgré notre famille et nos déterminants physiques / sociaux.
-Par contre en essayant d'explorer des viens anciennes je reconnais très facilement que ça paraît ultra plausible que j'ai jamais vraiment vécu ça. Le plus raisonable en l'état est: je nais avcc la mâturité, le vécu, de vies imaginées mais dont la puissance est omniprésente. Je vais bien mourir et avec mon corps toute cette expérience (c'est en tout cas la version la plus raisonnable). Ce n'est pas indésirable dans le sens où ça redonne à la vie . C'est difficile à gérer parce que je sens la tristesse, la peur, l'urgence remonter en moi, et avec tout ça la soumission à une façon de vivre qui n'est pas la mienne. Je redeviens un mouton. Bizarre car j'ai redonné un coup de fouet à ma propre vie et je me sens obligé de la vivre d'une autre manière que je ne l'entends.
-
-
+Par contre en essayant d'explorer des viens anciennes je reconnais très facilement que ça paraît ultra plausible que j'ai jamais vraiment vécu ça. Le plus raisonable en l'état est: je nais avcc la mâturité, le vécu, de vies imaginées mais dont la puissance est omniprésente. Je vais bien mourir et avec mon corps toute cette expérience (c'est en tout cas la version la plus raisonnable).
 
 
