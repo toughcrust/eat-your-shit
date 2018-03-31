@@ -38,7 +38,6 @@ dans un second temps un langage communicable. Ce langage est le support d'une de
 immédiate: ne passe pas par des concepts (esprits, Jésus, les mondes de la kabbale) qui sont des points d'arrêt de la pensée.
 
 
-Eureka, I love you, la vérité
 
 le langage associe à un symbole (initialement un son) un ensemble d'émotions. Le sentiment de découvrir une vérité émerge lorsque qu'il y a un "match" entre ce qu'y est présenté par nos sens et la phrase que l'on y associe et que l'on considère comme vraie. Cette phrase est un ensemble de symboles qui mis ensemble font une "requête" au cerveau pour créer une image mentale.
 
