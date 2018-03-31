@@ -1,8 +1,3 @@
-Sweet negative thinking patterns paradoxes:
-- If you are cynical, it's because you are not cynical enough: you mix hopes and reason
-- If you think your free will is limited, you indeed limit it
-- If you think you are limited in any way, you indeed limit yourself
-
 **This whole thing is a play/prank/hack gone wrong !**
 
 Ma définition de la spiritualité: la pensée qui suit le vertige d'une question telle que "Qu'est-ce que je fais là ? WTF is I BTW ???"
