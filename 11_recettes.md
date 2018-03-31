@@ -1,53 +1,15 @@
 ## Cool à retravailler
-Nobody wins: "hey toi l'émotion, le principe de vie, le désir, la peur. merci de ne pas prendre tout l'espace, on voit plus le spectacle."
 
-Au delà de ce à quoi je ressemble vraiment et de mon intelligence effective je ressens comme une pression interne qui cherche à me rendre plus beau, à faire bouger les contraintes. Que se passe t il si je detends mon corps pour laisser rayonner cette force ? De la même manière c'est fascinant de se poser en récepteur de ce qu emettent les autres. Derrière un physique on ressent une dimension ou des dimensions de beauté d'accomplissement qui sont orthogonales
+La détente amène à ressentir des forces puissantes qui tiraillent dans différentes directions.
 
 Deux règles de vie simples: auto validation et auto dérision => Ou plus simplement l'amour de soi ?  
 
-
-## Bof
-As soon as an emotion, a feeling, and idea starts to take over, let it be, dig it, but allow it to be wrapped with a balanced attitude.
-
-To my body: I am here To help, let's not overload ourselves with drama, shall we ?
-
-
-
-
-`Un-mindful VS mindful ingestion of potent food` => la différence entre s'engouffrer des dattes / du chocolat et déguster en laissant ce truc bizarre se passer en bouche (douleur, salivation intense, désir intense du shoot suivant) me paraît fondamentale. D'un côté on dompte la puissance, de l'autre on la laisse nous détruire de l'intérieur.
-=> Ne pas manger quand on est triste fatigué ou en colère ? 
-
+Y'a-t-il une différence fondamentale entre la digestion (1) en bouche et (2) celle des intestins ? (2) sans (1) a l'air souvent nocif: Addiction à des produits raffinés (sucre, choco).
 
 Notre cerveau cherche tout de suite à optimiser. L'idée qui l'obsède dans la seconde doit permettre de gagner de l'argent, rendre heureux, célèbre et bien entouré. Tout le rôle de la conscience est de donner du grain à moudre. Ralentir et faire réfléchir davantage.
 
-**Matérialisme et vie excitante**
-C'est excitant d'être capable de mobiliser des moyens importants pour atteindre ses fins
-C'est excitant d'être capable de se passer complètement de moyen matériels, de recycler / détourner pour atteindre ses fins
-Je ne vois pas assez grand souvent (Bjarke Ingels https://www.amazon.com/Yes-More-Archicomic-Architectural-Evolution/dp/3836520109)
-
-J'avons une tendance naturelle au malheur. Trouvons des malheurs qui me rendent heureux.
-
-concilier:
-- besoin d'expression orale
-- besoin d'exprimer des choses difficiles 
-- ennui dés que l'humour, la légèreté sont mis de côté
-- difficulté à se connecter aux autres parce que mon esprit s'attache aux tabous
-=> Stand up ! (au moins tout seul avec mon tél pour me filmer)
-
-Un de mes plus gros défis: **Don't be a stranger** => j'ai besoin de techniques là !
-des techniques douces et progressives !
-
-J'arrête pas de me dire que j'ai dépassé la solitude et la peur de mon enfance: c'est complètement faux. Je suis en fait persuadé que ça fait partie des choses qui viennent se cacher dans d'autres peurs, tristesses, blocages. Ce truc non résolu trouve une voie d'expression, un défouloir en cachant sa vérité que j'ai du mal à affronter. Ca permet de se mettre des oeillères et avancer mais en fait ça rend l'épanouissement véritable difficile: trop de choses enfouies => **comment parler de ces choses et à qui, comment les évacuer ?**  
-des techniques douces et progressives !
-
-
 Be the person and the experiences you'd like to meet and connect with in a cocktail party
 
-Du bon usage des archétypes: rarement s'y référer ! que dans les moments de crise. Quand on sait qu'on est le meilleur et qu'on l'apprend, quand on se rend compte que l'on est en méditation profonde => on tue la liberté d'esprit qui nous faisait suivre nos instincts
-
-Analyser plus en profondeur ce phénomène étrange: on est attirés par des lieux, des endroits des gens, on veut rayonner de joie, être généreux, audacieux. Mais des choses nous retiennent à chaque fois sans que l'on sache ni trop comment ni pourquoi. Ca rend malheureux, et pourtant quand je regarde en arrière j'ai le sentiment d'avoir majoritairement des bons choix. Mon corps sait qu'il n'est pas assez solide pour suivre les injonctions de l'esprit.   
-
-Ego and stuff are things that hide the tiny signals hinting at greatness / coolness. "Ego" is better served at rejoycing at the success of our whole life experience, tying it to our own body role can only spoil it. Channel all ego and megalomany into the desire of living in a different world, one that make your imagination sparkle.
 
 # La joie: ivre de recettes
 
