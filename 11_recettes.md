@@ -54,10 +54,8 @@ Un mal être est une forme de dés-alignement ? Et on est paumés face aux solut
 
 Je ne me suis jamais senti aussi prêt à "être moi" (ce qui est le sentiment le plus joyeux que je connaisse) que lorsque je me suis dit que j'étais victime et impuissant face à une maladie mystérieuse. Suffit de checker que je m'auto-sabote pas.
 
-
-
-
-tout ce que sait faire l'intelligence humaine c'est de l'analyse statistiques. Derrière des réflexions de "haut niveau" (les femmes sont plus sensibles donc moins adaptées aux positions de leadership) il y a en fait un amalgame d'expériences personnelles, de sources externes (amis, on dit, livres, mythologies) pondérées par fiabilité estimée (et biaiser par nos envies / espoirs). Ce serait super utile de connaître l'algo qui fait ça ! pouvoir comparer ntre les gens et pouvoir s'apercevoir de nos biais! Dés qu'on met à jour l'une quelconque de ces sources on s'aperçoit soit même qu'on a un jugement un peu grossier => pour tout sujet important c'est important d'expliciter ce sur quoi on fonde un jugement, et pas des phrases génériques qui essaient de prendre du recul.
-et c'est pourquoi nos avis ne peuvent pas être rigides: les lois sur lesquelles on se base ne sont elles-même pas rigides.
+Intelligence humaine:
+- Nécessité de créer une cohérence pour aider à la décision: donc compromis exactitude, hypothèses, besoin de prendre une décision parfois rapide
+- Ré-examination permanente des données collectées, des manières dont elles ont été traitées afin de mettre à jour les principes (= clichés et préjugés)
 
 
