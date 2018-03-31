@@ -13,20 +13,6 @@ l'intelligence c'est de voir / manifester ce qui est
 
 Pour se rendre compte de l'utilité de l'état: vivre de 16 à 18 ans sans ?
 
-sur comment notre cerveau est super fort, super flexible (on fait du big data, de l'ordi quantique en permanence pour éajuster nos décisiosn en fonction de ce qu'il se passe: on réévalue nos choix passés) et pourquoi on peut s'attacher à des principes cons
-"- Ainsi, dites vous, je serais pris de vertiges parce que les solides fondations de passé ont été ébranlées ?
-- Exactement [...] Votre esprit se trouve surmené parce que totalement préoccupé par la reconstitution du passé, et il n'a plus la capacité d'accomplir son travail normal - comme de prendre soin de votre équilibre. Le problème Spinoza."
-=> big data + learning + compression
-
-ce que j'apprends beaucoup en ce moment:
-ON doit compresser les infos, les simplifier, les mettre sur une dimension
-on a pas trop le choix. Bien le faire est un travail / re-travail harassant
-et en plus faut réussir à le défaire
-
-LE drame dans les relations humaines
-Ce qui est beau: dans limplacable isolation de sa vie et de ses fourmillements, trouver des échos chez quelqu'un d'autre.
-Le drame: ne pas se rendre compte que c'est ça qu'on peut raisonnablement désirer. Puis avoir des a priori sur comment y arriver ce que ça doit être. Avoir peur de ne pas y arriver. 
-
 Ce qui est ironique dans le fait de vouloir plaire aux autres: on voit très facilemnt qu'in fine c'est à soi même qu'on veut plaire: "Je veux voir dans tes yeux le reflet de la joie que j'ai moi même quand je dis ou que j'agis comme ça".
 D'où le fait qu'agir contre son plaisir pour plaire aux autres est très douloureux: **c'est un putain de court-circuit !**
 

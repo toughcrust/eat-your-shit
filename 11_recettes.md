@@ -54,8 +54,6 @@ Un mal être est une forme de dés-alignement ? Et on est paumés face aux solut
 
 Je ne me suis jamais senti aussi prêt à "être moi" (ce qui est le sentiment le plus joyeux que je connaisse) que lorsque je me suis dit que j'étais victime et impuissant face à une maladie mystérieuse. Suffit de checker que je m'auto-sabote pas.
 
-Intelligence humaine:
-- Nécessité de créer une cohérence pour aider à la décision: donc compromis exactitude, hypothèses, besoin de prendre une décision parfois rapide
-- Ré-examination permanente des données collectées, des manières dont elles ont été traitées afin de mettre à jour les principes (= clichés et préjugés)
+
 
 
