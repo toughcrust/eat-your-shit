@@ -3,15 +3,6 @@
 It seems like my body always tend to worry and get unhappy. But a part of me can **trick it** into being happy. C'est de la manipulation. **Mais en fait la meilleure manipulation c'est quand on finit par trouver les mots qui ont une résonnance profonde pour tous**.
 
 
-La jalousie, l'envie: bien plus souvent la douleur de se rendre compte que l'on a pas la force de réaliser nos **propres** désirs (qui peuvent être diamétralement opposés à ceux qui nous éclatent à la gueule) ou pire, on ne sait même pas ce que sont nos désirs, et on désire le désir.
-
-choses qui m'épanouissent: 
-- conseiller les autres en m'ouvrant intimement
-- explorer à fond et de manière ultra réaliste une idée pour aller à contre courant de ce qui se fait puis lâcher et passer le relai
-  à autre chose. En discuter à un barbeq végé avec un verre de vin
-
-Plaisir ou désir ? But de la vie: éprouver de plus en plus de désir pour soi même et le monde qu'on essaye de créer. Ne va pas contre le désir physique envers soi même mais le désir envers le courage et l'honnêteté est encore plus vif.
-
 Accepter un déplaisir: choix délétère avec des conséquence graves, multiples et cancéreuses: abdiquer pour un truc à la con à des ramifications dingues sur notre capacité à nous battre pour nous réaliser. Je crois qu'on est tous à moitié conscient qu'il n'y a pas de sens à la vie et que c'est très bien comme ça tant qu'on est étonné / émerveillé parce que ce qu'il se passe. Se voiler face au désir (comme je m'empêche de consumer au travers du voyage) c'est là la véritable douleur: là le non sens de la vie devient douloureux. et non pas parce que c'est un non sens mais parce c'est des possibilités de sens qu'on s'empĉhe
 
 Nouvelle note !
@@ -31,23 +22,7 @@ plus perturbant que ne pas trouver de sens à la vie: **ne pas prendre de plaisi
 
 
 
-> He who has a why to live can bear almost any how
-`Nietzsche`
-
-Je crois qu'on a de plaisir qu'en réponse à une souffrance vécue ou imaginée.
-Transformer les peurs et souffrances floues, imprécises en quelque chose de consistant. Pour les atténuer mais surtout pour faire émerger la joie dual => développer sa capacité à la joie.
-Cas extrême de la dépression: être à fleur de peau, hyper-conscient du fait d'être en vie et de ce que l'on imagine manquer
-
-**Profiter de sa tristesse, la laisser nous envahir comme on se laisse submerger par le plaisir ? Ne pas en avoir honte / l'ignorer mais l'écouter, la chérir presque comme signe d'humanité et de potentialité de joie.**
-
-Très important: une nuance à apporter à cette discussion sur plaisir / douleur: l'inconfort.
-L'incofort du voyage, de l'effort sportif, du défi sont des "douleurs" qui rendent plus vivants. Donc:
-- combattre la douleur
-- étendre sa zone de confort
-- accueillir le plaisir
+    
 
 
 
-Désarroi de ne pas prendre du plaisir alors qu'on a la conviction qu'en meilleur santé on kifferait.
-
-Le plaisir d'en avoir rien à foutre.

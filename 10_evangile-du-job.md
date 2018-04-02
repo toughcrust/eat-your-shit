@@ -18,7 +18,6 @@ On the contrary also happens if you're too dedicated and don't use it only to ex
 
 Manageable ultra multi-tasking: write down everything, have reliable reminders and places to go look for info. Mind should be clear of worry.
 
-C'est super agréable d'avoir une TODO liste ultra raisonnable et de se dire qu'on se garde 1h de boulot pour faire un truc qui nous tient à coeur et qui n'est pas essentiel. Finalement y passer 2h parce que c'est cool.
 
 Ce qui est complètement cassé dans le travail moderne: on ne comprend nous mêmes pas en quoi les boulots à la con qu'on fait sont utiles et pourtant c'est ça qui nous assure un toit et de la bouffe !!
 
@@ -29,8 +28,6 @@ pour ne pas être déconnecté de la réalité comme un politique
 Faudrait vraiment que je bosse pour un truc pour lequel je suis prêt à payer 
 
 My specialties: be there, listen, question, suggest, digest, synthetize
-
-Contre le productivisme dans le dev, pour une geekerie inventive et épanouissante
 
 
 What I'm driven to especially: downgrade technology. really get to understand and get to work with hi-tech but find easier way to do it. How not not use it !
@@ -45,12 +42,6 @@ Faire
 - ... And just what you need to do (YAGNI) ...
 - ... But before **fake it till you make it**
 
-- Context switching is a bitch
-- **Steal patterns**. It already exists waiting to be (re)discovered
-- One challenge at a time. 0 is boring, 2+ is exhausting.
-- **Hacking / tinkering is the way to create**. Methods come next for reproduction  
-- What's a MVP ? ![image](https://cloud.githubusercontent.com/assets/24764960/25384935/80086a7e-29c2-11e7-8464-85b4f6bef936.png)
-credits: https://webdesign.tutsplus.com/articles/how-to-work-with-mvps-minimum-viable-products--cms-28689?utm_source=questions_to_ask_as_a_new_designer_and_the_power_of_desire_lines&utm_medium=weekly-newsletter&utm_campaign=marvel-newsletter-2017-04-25&utm_term=2017-04-25
 
 Idée qui revient régulièrement:
 Faire des petites choses très ciblées qui marchent isolées. Mises ensembles elles essaient de se coordonner dynamiquement en retombant sur leurs pattes (garder une cohérence quoiqu'il arrive). Leur comportement est explicite et modifiable par un observateur.

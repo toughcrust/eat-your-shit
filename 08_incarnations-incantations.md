@@ -17,35 +17,11 @@ One of the best feeling ever is to empower your weaknesses: Expose them to other
 
 **In other words, live in the world you dream to live in. Be the explorer of your intimate unknown, the mercenary of your very fundamental excitement**
 
-authentic == eccentric ?
 
-Je suis pour les chefs ! Des chefs pour tout par tout. Tout le monde est chef pour des sujets différents, selon vélléité et affinités. **Prendre la responsabilité de ce qu'il "se passe"**, individuellement, et collectivement c'est encore mieux.
-L'indignation, le combat c'est la vie qui se déploie.
-Mais le kiff du "petit chef" est une prison dérisoire par rapport au **domptage d'un territoire sauvage ensemble, en famille, en meute, en tribu** !
-
-Soyons voltés (La zone du dehors)
 
 Vous vous ennuyez, les gens! L’actif en vous, le vif, a perdu ses adversaires, se morfond, n’a, pour ses conquêtes, plus d’espace, plus de front où aller tremper le métal de ses os ! Plus de quoi s’user, épuiser ses forces, hein? Ah si : dans les petits plaisirs : les capsules, les stimulations artificielles, la virtue, le jeu, les images… **Les gens ne sont pas morbides : ils veulent juste de l’intensité** 
 
 
-
-> Whatever you can do, or dream you can do, begin it. Boldness has genius, power, and magic in it. Begin it now.
-`Goethe`
-
-## Intuition de la joie comme attitude raisonnable
-De la même manière que la croyance en tout me paraît raisonnable, j'ai l'intuition que la joie l'est tout autant.
-D'expérience et de ce que je ressens, la joie est ouverture aux choses, accueil de ce qui est possible. L'absence de joie,
-qui n'est pas nécessairement tristesse / dépression, constitue un filtre à ce qui est possible.
-La question est donc: de quoi me coupe-je en m'emplissant de joie ? peut on explorer sa tristesse dans la "joie" ?
-Ou faut il trouver un autre mot une autre résonance pour "joie" ?
-En même temps la rage, "stand up for yourself", "indignez-vous" me paraît vital, au sens premier du terme. Est-ce qu'on peut
-trouver un mode d'expression de la rage qui ait la puissance d'ouverture de la joie (métalleux du Hellfest ?)
-Dévorer le monde, s'envivrer de joie extatique
-
-**Randomness**
-Harvest it, encourage, welcome and nurture randomness. Get the good pain out of it, the one that makes you grow and resist pain.
-
-En vrac
 
 je kiffe découvrir des plaisirs, des vérités insoupçonnées et pourtant tellement bons quand on les vit
 
@@ -90,11 +66,9 @@ Hier et Demain tuent le possible, cet animal de l'instant, cette bête aux yeux 
 
 Les trucs à la con sur les gémeaux qui résonent en moi: Away from routine, to care and meaning
 
-Hippie like a pro: be very serious about ecstasy and ideals
 
-«N’aspire pas, ô mon âme, à la vie éternelle, mais épuise le champ du possible.» Pindare
 
-Live & share ecstatic & evolutionary consciousness-shifting experiences
+Live & share ecstatic & (r)evolutionary consciousness-shifting experiences
 
 Ca me fait penser que ce genre de mission qui me parait finalement raisonable ne sera jamais en accord dans l'immédiat avec un boulot ou une vie amoureuse stable. Est-ce que je peut trouver plusieurs aspirations de ce type à différents niveaux de résonance sans me sentir soit enfermé soit "overwhelmed"
 
@@ -111,12 +85,6 @@ Dur pour moi:
 - J'admire le plus les gens capables d'avouer des choses inavouables (les pédophiles allmnads qui se font soigner)
 - J'en suis difficilement capable moi-même
 
-
-I WANT IT ALL, même la sérénité qui vient quand on s'est convaincus qu'on ne peut pas tout avoir, même le regard apaisé du contemplateur qui n'a pas peur de la perte parce qu'il n'a rien à perdre. La grande gueule, le danger, la la profonde sincérité, l'absence de masque.
-
-Somehow related: what's wrong with willing to be god ? I am wind, earth, emptyness, symbiosis of a multitude and I acknowledge it. Still I dream to be one, to be god. What's wrong with that ?
-
-La beauté de la vie est dans le précieux, le fragile, l'insoupçonné, l'éphémère, le subtile. C'est con de se planter à rêver à quelque chose qui en fait est naze, donc paradoxalement ça vaut le coup d'explorer assez "brutalement" la vie pour savoir ce qui nous fait rêver exactement ou pas. Juste, ne pas détruire (exploration non invasive).
 
 Quand je pense à la métenpsychose, au faut d'avoir vécu plusieurs vie, à l'astrologie qui nous confère des archétypes à des poids relatifs plus ou moins élevés, j'ai cette même sensation que lorsqu'on découvre une vérité caché qui a soudain l'air évidente. Ca explique tellement de choses sur comment on se comporte malgré notre famille et nos déterminants physiques / sociaux.
 Par contre en essayant d'explorer des viens anciennes je reconnais très facilement que ça paraît ultra plausible que j'ai jamais vraiment vécu ça. Le plus raisonable en l'état est: je nais avcc la mâturité, le vécu, de vies imaginées mais dont la puissance est omniprésente. Je vais bien mourir et avec mon corps toute cette expérience (c'est en tout cas la version la plus raisonnable).

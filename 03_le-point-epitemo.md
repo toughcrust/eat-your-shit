@@ -1,11 +1,4 @@
-Super important à développer. Dans le processus de comprendre et décider il se passe d'abord une intellectualisation de la chose puis le flambeau est passé au corps qui "stocke" le résultat. Mais les deux ne parlent pas exactement le même language. Là où l'esprit est capable de manipuler des tournures négatives sans que ça le rende triste, le corps se trouve limité dés lors qu'une injonction est de type "ne pas". D'ailleurs toute injonction le rend malheureux. D'où ma conviction que je suis un peu obligé de "croire en tout" pour ne pas me retrouver dans une situation où les frictions gâchent la vie, pire l'empêche. Il faut donc travailller ç communiquer avec son corps. Je crois que c'est ce que je fais quand je relis un truc, que je ne le sens pas et que je le remâche jusqu'à ce qu'il résone mieux. 
 
-## Strippin' bloggers
-
-voir d'où ça vient "If nothing else works, a total pig-headed unwillingness to look facts in the face will see us through…"
-
-
-Not talking about half naked micro bloggers.
 
 pour ce qui est d'écouter ce que des gens en apparences loufoques ont à dire:
 "I feel you're being honest, I need to have a feeling what you experience but I certainly don't need your mental models that try to make sense of what you experience, at least in a first time."
@@ -18,35 +11,6 @@ If you take the time to investigate, you WILL know better than anybody else. Onl
 On most things people are content with having knowledge they hold "true": it serves them. Prove dem wrong and then get annoyed.
 
 About the langage: I have no shame in using the vocabulary someone uses (light nourishment) for searches but to express myself I allow to use a word that resonates more. 
-
-## Cut the crap
-
-**Que dit le corps ?**
-Je ressens un refus viscéral de plus en plus présent de ne m'engager émotionnellement dans rien qui ne soit pas essentiel à ma vie. C'est tellement bon de refuser le stress => savoir débusquer le stress et le bouter hors du corps
-
-Droit au but / **Avancer en trace directe**:
-<ajouter citation de la horde du contrevent>
-- Le combat renforce 
-- L'hésitation, le louvoiement font déperir
-
-**Garder l'objectif en vue**
-Plus les moyens d'atteindre un but sont proches de l'esprit du but, mieux c'est:
-- J'aime pas les lois coercitives, je les préfères incitatives
-- Je préfère un combat doux à un entraînement sur sac de frappe
-- Eviter certains aliments plutôt que de prendre un médicament
-
-**"Pourquoi est-ce que je m'emmerderais à faire ça"**?
-
-1. Fuck un boulot qui ne soit pas simple & kiffant
-2. Tant qu'il y a de la place pour la bonne humeur et la coopération (à savoir 99% du temps) faisons ça
-3. idem 1. et 2. appliqué à ma relation à moi-même
-
-**Care & Do**
-- care is a call for action that need not last
-- doing frees from caring => do more to care less
-
-**No crap in the first place**
-Vivre selon ses propres règles / dans sa propre utopie (a minima honnêteté radicale). Après je n'en ai rien à faire si ça ne se passe pas comme je le rêve. Je n'abandonne rien de ce qui est important, mais je me fous de ce que je ne maîtrise pas (Et qu'est-ce que je maîtrise ?).
 
 ## Dialog with myself
 
