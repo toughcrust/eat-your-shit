@@ -1,10 +1,3 @@
-Ce serait super cool si... Commencer ses phrases comme ça: ça met en joie, ça fait tomber les illusions, ça rend prêt à accueillir aussi bien les bonnes et mauvaises surprises.
-Sans langage, sans l'écriture et le cloud je n'arriverais pas à approfondir ma pensée. Là je peux retourner dans un état proche de là où ma pensée s'est précédemment arrêtée.
-
-# J'ai compris tous les mots
-
-J'ai bien compris céline.
-
 ## Langage et structuration
 L'H / je ne réfléchis bien que sur ce que je peux manipuler / expérimenter / hacker. Le language n'est pas la réflexion mais il offre (encore plus avec l'écriture)
 la possibilité de construire une réflexion complexe en superposant des couches simples.
