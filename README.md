@@ -77,3 +77,7 @@ Un mal être est une forme de dés-alignement ? Et on est paumés face aux solut
 
 Je ne me suis jamais senti aussi prêt à "être moi" \(ce qui est le sentiment le plus joyeux que je connaisse\) que lorsque je me suis dit que j'étais victime et impuissant face à une maladie mystérieuse. Suffit de checker que je m'auto-sabote pas.
 
+Idée marrante à triturer: des fois j'ai l'impression que la meilleure manipulation \(arriver à ses fins avec les autres ou soi\) c'est d'être complètement ouvert sur ses objectifs et dans une dialectique totale. "Pay forward" aussi. =&gt; "Sweet patterns of negative thinking"
+
+
+
