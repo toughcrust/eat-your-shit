@@ -98,5 +98,10 @@ Amour, on veut quoi ?
 
 Mélanger ses cercles amis / famille / whatever =&gt; oblige à faire face à ses fragmentations et aux illusions de coolitude qu'on se donne.
 
+Voir pour agir. Ce que j'aime dans le journalisme, la photo ou le dessin humoristique:
+
+* les déchets c'est quoi ? montrer ce qu'on brûle de déchets
+* manger de la viande ? montrer la chaîne de production
+
 
 
