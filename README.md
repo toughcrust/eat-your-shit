@@ -134,7 +134,7 @@ A l'école \(de la vie\):
 * quel métier les gens font penser qu'il ne sont pas fait pour toi ?
 * pour lesquels n'es-tu pas assez intelligent / fort ?
 
-
+Je croirais en la possibilité de création d'une IA forte si l'on comprend rationnellement comment et pourquoi le cerveau humain se hacke
 
 
 

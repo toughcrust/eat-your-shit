@@ -5,16 +5,7 @@ Nous bâtirons un rêve inespéré, une simplicité d'abondance et de beauté in
 I'd like to age in something like a badass transsexual grandpa eventually. You know, **no shit, low appetite,  
 big laugh, bigmouth, looking after of the offspring**. Having been satisfied an all levels, I now take pleasure in nurturing lifes, Life, what may live ...
 
-One of the best feeling ever is to empower your weaknesses: Expose them to others with the strength of the fighter. **Be the puppet of your most intimate desires** and enjoy one of the most incredible thing ever:
-
-* people will tell you're crazy and make you feel like a marginal or a romantic at best
-* but that's actually when you'll truly connect with them
-
-**In other words, live in the world you dream to live in. Be the explorer of your intimate unknown, the mercenary of your very fundamental excitement**
-
 Vous vous ennuyez, les gens! L’actif en vous, le vif, a perdu ses adversaires, se morfond, n’a, pour ses conquêtes, plus d’espace, plus de front où aller tremper le métal de ses os ! Plus de quoi s’user, épuiser ses forces, hein? Ah si : dans les petits plaisirs : les capsules, les stimulations artificielles, la virtue, le jeu, les images… **Les gens ne sont pas morbides : ils veulent juste de l’intensité**
-
-je kiffe découvrir des plaisirs, des vérités insoupçonnées et pourtant tellement bons quand on les vit
 
 **désintéressement passioné ! globalement les oxymores ça marche bien**. ça capture le besoin de mouvement. \(FAIRE une blague avec oxy-moron\)
 
@@ -37,27 +28,6 @@ Ce n'et pas la même chose mais on peut faire plus simple: pour moi être sincè
 
 Je me rends compte qu'une des douleurs les plus sournoises à laquelle j'ai pas tellement de réponse, c'est ce besoin de se retrouver dans une soirée, un peu unique, hors du temps, une fille attirantes et de briller. Et je kiffe quand ça marche, mais j'en veux plus, en même temps je me lamente de ce que je n'ai pas vécu \(ce même genre de rencontre ou ce que je n'ai pas fait avant\) et au final je suis surtout triste. Mais je ressens que cette recherche de l'exception, du piquant, du risque, de la séduction a quelque chose d'extrêmement spirituel. Parce qu'on touche à une frontière, une singularité intense humainement, parce que ça nous touche, ça nous sublime et ça nous broie. Et quelque chose qui a ce pouvoir est forcément important.  
 je crois que ce qui est particulièrement marquant c'est le fait de se prendre en pleine face plien balle ce que c'est qu'être humain, les possibles qui sont ouverts, la fragilité de chaque instant, le pouvoir de la volonté, l'échaffaudage des souvenirs. Quand on passe des fois des semaines à agir comme un objet sans âme, je pense qu'il s'agit en fait d'une violence salutaire.
-
-**ETRE CEUX QUE J'AIME**
-
-ne pas regretter envier les autres les faire vivre en soi  
-et vice versa die empty  
-Dévorer les autres des yeux, leurs passions et leurs joies \(dans leur accomplissment, leur épanouissement\), s'enflammer et les enflammer, s'embraser comme on s'embrasse ivre, entraîner la meute et se laisser entraîner  
-manger et être mangé, tuer et se laisser tuer. tuer pour rendre immortel.
-
-écrivain passionné de la réalité et de ses possibles, j'éprouve de la joie à observer et ne pas essayer de changer le monde \(mais vivre tout de suite maintenant une réalité différente\), à ouvertement apprendre en permanence, être dans le mouvement, le léger \(caracole\)
-
-Ne jamais s'éloigner trop loin de ses plus belles émotions. Surtout ne pas en devenir étranger. Leur rendre visite. Rentre en collision.  
-Je suis caracole dans un corps-esprit d'attachements  
-=&gt; retrouver des extraits de Caracole et de Captp
-
-Hier et Demain tuent le possible, cet animal de l'instant, cette bête aux yeux effarés prise en pleins phares, qui autrement se tapit dans les mirages de nos vies endormies.
-
-Les trucs à la con sur les gémeaux qui résonent en moi: Away from routine, to care and meaning
-
-Live & share ecstatic & \(r\)evolutionary consciousness-shifting experiences
-
-Ca me fait penser que ce genre de mission qui me parait finalement raisonable ne sera jamais en accord dans l'immédiat avec un boulot ou une vie amoureuse stable. Est-ce que je peut trouver plusieurs aspirations de ce type à différents niveaux de résonance sans me sentir soit enfermé soit "overwhelmed"
 
 Quand je pense à la métenpsychose, au faut d'avoir vécu plusieurs vie, à l'astrologie qui nous confère des archétypes à des poids relatifs plus ou moins élevés, j'ai cette même sensation que lorsqu'on découvre une vérité caché qui a soudain l'air évidente. Ca explique tellement de choses sur comment on se comporte malgré notre famille et nos déterminants physiques / sociaux. En même temps se dire que ce n'est qu'une impression c'est libératur \(autant que l'acceptation comme vérité !\), que c'est du bullshit que simplement le plus raisonable en l'état est: je nais avcc la mâturité, le vécu, de vies imaginées mais dont la puissance est omniprésente. Je vais bien mourir et avec mon corps toute cette expérience \(c'est en tout cas la version la plus raisonnable\).
 
