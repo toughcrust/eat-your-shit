@@ -83,19 +83,20 @@ Idée marrante à triturer: des fois j'ai l'impression que la meilleure manipula
 
 L'art: pour moi l'"art", c'est le regard qui se porte sur "quelque chose" et interprète une intention =&gt; Dialectique intention / interprétation. Ex: je regarde le paiper peint des chiottes et c'est une jungle qui s'offre à moi. Donc à la fois une intention intiale et une interprétation \(correcte ou non\). interprétation: peut être un jeu de recherche de l'intention ou alors l'artiste tient au contraire à être clair sur ses intentions. "Art moderne" de l'art ? Une poubelle déversée de l'art ? Pour moi oui. Fainéant quand ça a déjà été fait. Banksy c'est coolos dans l'interrogation que ça pose.
 
-Amour, on veut quoi ?  
-- sexe  
-- connection humour  
-- connection philosophique / valeurs  
-- tendresse physique  
-- une personne pour qui on compte plus que les autres: sentiment d'unicité, d'être désirable, apaisement du sentiment de solitude, être rassuré en cas de coup dur \(si je suis à l'hôpital, je m'attends à ce qu'il / elle soit à mes côtés\)  
-- une personne qui pour nous compte plus que les autres: s'offrir, soigner, prendre soin  
-- être dans le flow: drogue bizarre de l'amour qui a des externalités positives  
-- être en couple pour pouvoir sortir avec d'autres couples  
-- créer des souvenirs plus forts \(type voyage\) parce que co-créés et qu'on part dans l'idée que la relation est éternelle  
-- avoir des enfants: créer un héritage, une histoire biologico-humaine qui nous dépasse complètement.
+Amour, on veut quoi ?
 
+* sexe  
+* connection humour  
+* connection philosophique / valeurs  
+* tendresse physique  
+* une personne pour qui on compte plus que les autres: sentiment d'unicité, d'être désirable, apaisement du sentiment de solitude, être rassuré en cas de coup dur \(si je suis à l'hôpital, je m'attends à ce qu'il / elle soit à mes côtés\)  
+* une personne qui pour nous compte plus que les autres: s'offrir, soigner, prendre soin  
+* être dans le flow: drogue bizarre de l'amour qui a des externalités positives  
+* être en couple pour pouvoir sortir avec d'autres couples  
+* créer des souvenirs plus forts \(type voyage\) parce que co-créés et qu'on part dans l'idée que la relation est éternelle  
+* avoir des enfants: créer un héritage, une histoire biologico-humaine qui nous dépasse complètement.
 
+Mélanger ses cercles amis / famille / whatever =&gt; oblige à faire face à ses fragmentations et aux illusions de coolitude qu'on se donne.
 
 
 
