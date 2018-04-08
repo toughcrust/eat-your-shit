@@ -59,14 +59,5 @@ Live & share ecstatic & \(r\)evolutionary consciousness-shifting experiences
 
 Ca me fait penser que ce genre de mission qui me parait finalement raisonable ne sera jamais en accord dans l'immédiat avec un boulot ou une vie amoureuse stable. Est-ce que je peut trouver plusieurs aspirations de ce type à différents niveaux de résonance sans me sentir soit enfermé soit "overwhelmed"
 
-Enseignements du zodiaque même sans y croire:
-
-* Nous sommes faits de polarités archétypales
-* Ces polarités peuvent avoir des nuances complexes \(timide en amour, brave en affaires\)
-* Rien de tout ça n'est évident
-
-Sinon sur la réincarnation en "old soul": [https://lonerwolf.com/problems-old-souls-experience/](https://lonerwolf.com/problems-old-souls-experience/)
-
-Quand je pense à la métenpsychose, au faut d'avoir vécu plusieurs vie, à l'astrologie qui nous confère des archétypes à des poids relatifs plus ou moins élevés, j'ai cette même sensation que lorsqu'on découvre une vérité caché qui a soudain l'air évidente. Ca explique tellement de choses sur comment on se comporte malgré notre famille et nos déterminants physiques / sociaux.  
-Par contre en essayant d'explorer des viens anciennes je reconnais très facilement que ça paraît ultra plausible que j'ai jamais vraiment vécu ça. Le plus raisonable en l'état est: je nais avcc la mâturité, le vécu, de vies imaginées mais dont la puissance est omniprésente. Je vais bien mourir et avec mon corps toute cette expérience \(c'est en tout cas la version la plus raisonnable\).
+Quand je pense à la métenpsychose, au faut d'avoir vécu plusieurs vie, à l'astrologie qui nous confère des archétypes à des poids relatifs plus ou moins élevés, j'ai cette même sensation que lorsqu'on découvre une vérité caché qui a soudain l'air évidente. Ca explique tellement de choses sur comment on se comporte malgré notre famille et nos déterminants physiques / sociaux. En même temps se dire que ce n'est qu'une impression c'est libératur \(autant que l'acceptation comme vérité !\), que c'est du bullshit que simplement le plus raisonable en l'état est: je nais avcc la mâturité, le vécu, de vies imaginées mais dont la puissance est omniprésente. Je vais bien mourir et avec mon corps toute cette expérience \(c'est en tout cas la version la plus raisonnable\).
 
