@@ -30,23 +30,17 @@ I can't imagine any definitive answer on such a topic not to be mind blowing. An
 
 rage & joie & tristesse FTW \(transmuter en émotions basique c'est sain\)
 
+La détente amène à ressentir des forces puissantes qui tiraillent dans différentes directions. Et les laisser se battre pour de vrai \(**arrêter d'être un mec qui arrive en plein milieu de la mêlée et qui se fait tabasser :D**\)
 
-
-
-
-
-
-La détente amène à ressentir des forces puissantes qui tiraillent dans différentes directions.
-
-Deux règles de vie simples: auto validation et auto dérision =&gt; Ou plus simplement l'amour de soi ?
+Deux règles de vie simples: auto validation et auto dérision =&gt; Ou plus simplement l'amour de soi ? Amour de soi: une facette de cette énergie qui nous anime et qu'on a intérêt à laisser se déployer et tout défoncer sur son passage ?
 
 Y'a-t-il une différence fondamentale entre la digestion \(1\) en bouche et \(2\) celle des intestins ? \(2\) sans \(1\) a l'air souvent nocif: Addiction à des produits raffinés \(sucre, choco\).
 
 Notre cerveau cherche tout de suite à optimiser. L'idée qui l'obsède dans la seconde doit permettre de gagner de l'argent, rendre heureux, célèbre et bien entouré. Tout le rôle de la conscience est de donner du grain à moudre. Ralentir et faire réfléchir davantage.
 
-Be the person and the experiences you'd like to meet and connect with in a cocktail party
+Be the person and the experiences you'd like to meet and connect with in a cocktail party. But the coolest cocktail party ever. Tiens est-ce que ce serait pas extrêment sain de définir précisément ce que serait ce "cocktail party" !!?? à quoi les gens rient, qu'est-ce qu'on y mange ? qui sont-ils ? C'est quoi la musique qui passe ?
 
-Vivre son utopie, c'est pas de l'aveuglement ou lutter contre des montagnes. C'est l'ambition de construire son monde et la préparation à accueillir ce que les autres proposent.
+Vivre son utopie, c'est pas de l'aveuglement ou lutter contre des montagnes. C'est céder à a la facilité de construire son monde et la préparation à accueillir ce que les autres proposent.
 
 **The holidays feeling**  
 Quand je prends une douche froide  
@@ -54,7 +48,7 @@ Quand je sors de moi même pour parler avec enthousiasme, ré-analyser
 
 Digérer toute pensée ! La mettre sur papier avec détail et clareté. Même si c'est dimanche \("sunday checkout"\)
 
-Twist autour de "la joie inconditionnelle" applicable à moi: "Je t'aime mais là tu fais de la merde, Je t'aime mais là tu es un danger pour moi."
+"l'amour inconditionnel" tel que je peux l'envisager: "Comme moi tu fais de la merde inacceptable, ce qui n'est pas incompatible avec un amour puissant qui nous fait un putain de bien à tous."
 
 dans la discussion avec soi ou les autres: toujours utile et enrichissant de déployer sa pensée à "voix haute" sans honte \(et en se laissant même la possibilité d'exprimer ses réticences à surpasser sa honte\), sans chercher à cacher les pistes mal dégrossies / moins séduisantes / contradictoires. Bref tout déployer comme un plan avant l'attaque, jouer cartes sur tables.
 
