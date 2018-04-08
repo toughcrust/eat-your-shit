@@ -136,5 +136,23 @@ A l'école \(de la vie\):
 
 Je croirais en la possibilité de création d'une IA forte si l'on comprend rationnellement comment et pourquoi le cerveau humain se hacke
 
+**design playground**  
+Comme john durrant: un espace pour se donner à fond, pour s'amuser, sécurisé. Protège le monde extérieur aussi: expérimenter les ogm, le transhumanisme, la conquête spatiale de façon confinée pour ne pas détruire le monde \(et un espace confiné dans son esprit, sans le fragmenter !\). Je suis pour une recherche technico-scientifique débridée, notamment parce que son apport à toute pensée est inestimable. Mais canalisée parce que par défaut rien ne dit qu'on est pas en train de faire de la grosse merde \(genre une bombe nucléaire\)
+
+Comment nous utilisons notre argent / tout "avantage" est plus important que le métier que l'on exerce \(être trader et acheter équitable, local entretenir un jardin est plus utile que de "travailler dans le social", acheter à bas prix et prendre l'avion\). Bon faut quand même pas être trop nocif voire trop efficace dans son boulot =&gt; saboter même :D
+
+Indexer la capacité à croître d'une entreprise sur le nombre de ses salariés ?  
+  
+Contre le décrochage scolaire:
+
+* laisser l'école telle qu'elle est dans le majeure partie
+* pour ceux qui décrochent: leur proposer une alternative \(fais ce dont tu as envie, on essaie de t'accompagner\)
+* l'école est une chance: ceux qui ne la prennent pas sont invités à rester chez eux
+  bénéfices attendus:
+* les profs ne sont pas tenus de faire respecter la discipline, encouragés à se reconnecter avec le plaisir de transmettre
+* un élève est responsabilisé face à sa propre éducation, et ressent une forme de respect de la part des enseignant
+
+=&gt; va dans la partie agenda politique / éducation.
+
 
 
