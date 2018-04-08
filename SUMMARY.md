@@ -9,5 +9,4 @@
 * [Incarnations ~ incantations](08_incarnations-incantations.md)
 * [Plaisir](09_plaisir.md)
 * [L'évangile du job](10_evangile-du-job.md)
-* [Recettes](11_recettes.md)
 
