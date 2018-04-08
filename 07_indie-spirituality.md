@@ -225,132 +225,13 @@ sagesse, renvoie une partie de nous en cage et la tourmente, sa sagesse est à r
 Peut-il y avoir une connaissance consciente de limitation du libre arbitre ? Ca renvoie à une impossibilité: en tout libre-arbitre  
 décider de si l'on croit ou non que notre libre arbitre est un leurre. C'est indécidable.
 
-### Eléments d'un cosmogonie utile
+On cherche à créer de la chaleur, de la vie, du mouvement à partir du froid / du vide / du néant. **Create warmth.**
 
-Est-ce que "ça" résout mes contradictions sans en créer de nouvelles, élargit ma compréhension  
-des choses ?
+Je suis pure conscience, je n'invente rien. Je suis le puits gravitationel dans lequel s'engouffre l'intelligence. Quand je m'imagine ça, je me détends, j'arrête d'essayer de forcer ce que je veux voir émerger \(des idées excitantes qui réalignent mes problèmes\) et ça marche. Donc c'est vrai ? Ou prophétie auto-réalisatrice ?
 
-### Exemple de cosmogonies
+Une attitude "spirituelle", c'est un mélange de rage joyeuse, de légèreté intense, de tendresse profonde et détachée \(importance de l'oxymore qui garde dans le mouvement, évite la cristallisation.\)
 
-Nous sommes des marionettes d'une conscience primordiale qui nous  soudainemet laissé notre liberté.  
-Nous nous conformons à ce que nous observons chez ceux dont nous savons qu'ils sont issus de ce même principe de plaisir  
-fondateur. C'est notre zone de confort. Dans cette zone de confort, le désir créateur étouffe et cherche à s'exprimer.  
-Pourras-tu devenir créateur de \(ta\) vie, prendre la pleine responsabilité de tes mouvements, étendre ta conscience jusqu'où tes envies te poussent ?
 
-Les courants d'âmes: on retrouve des parts de soi dans les autres. Mais des courants de nature différentes les parcourt,  
-de même en nous. La conscience observe passer ses forces qui poussent le corps, l'empêchent, s'allient ou se détruisent.  
-Cherche à capter / accaparer la conscience pour se réaliser pleienement. Notre âme là dedans ? cette chose indéfinissable  
-qui est accro, qui ne veut qu'altérer sa conscience en permanence dans une curiosité insatiable.  
-Les bactéries dansmon bide créent leure propres forces / volonté.  
-Les courants dépassent le cadre du corps et même les traversent. Là ou l'on souffre souvent de se sentir séparé des autres ou  
-au contraire trop similaire, cette vision est libératrice: nous sommes mélangés. Je sais pas si c'est vrai mais du point  
-de vue rationnel c'est tout à fait raisonnable: les archétypes humains, nos réflexes et émotions sont d'une manière ou d'une autre  
-répandus de manière fluctuante entre tous les hommes. Autant le monde physique nous apparaît fragmenté, autant les forces  
-qui le meuvent sont miscibles: **et ça c'est en fait quelque chose que l'on utilise tous au jour le jour: nous partons  
-du principe que des forces \(terme super flou dans ce cas\) organise le monde physique qui est également soumis à l'entropie**
-
-On recherche la chaleur: amour, humour, confort. toute la vie est une co-création pour savoir créer la chaleur à partir du froid / du vide. **Create warmth**
-
-ce qui m'intéresse: faire le lien entre les aspirations , la réalité du corps, la pensée logique, l'intuition
-
-l'âme qui s'attache à des fractales de matière
-
-* la conscience peut s'accrocher à une cellule comme un homme + on a conscience que du superficiel de notre corsp + mental
-* les hommes sont des branches de la même graine
-* y'a des fractales qui bougent, des branches qui bourgeonnent, embeliisent, grandissent, d'autres meurent
-* en même temps passivité =&gt; l'âme "go with the fl\(o/a\)wS" spectateur
-* en même temps ce serait pour moi la force vitale du mouvement: "Je pense qu cette graine / cette branche / ce début de mouvement
-  mérite sa place dans un équilibre harmonieux des choses. Je vais me concentrer desssus, apprendre à le connaître et le faire grandir"
-
-"ce qui est en haut est comme ce qui est en bas":  
-Depuis tout petit, je joue aux légos, je créé des mondes animés d'esprit. Je m'imagine leurs vies, je joue avec, je me nourris  
-de leurs vies =&gt; play god. Ces jouets n'ont pas à m'obéir =&gt; LEGO la grande aventure, sausage party.
-
-Et si le corps est "high on soul" ? Cet élan vital qui le meut, le corps ou ses parties cherchent à l'accaparer  
-=&gt; souffrance. Libérer la conscience du corps ? LIbérer la conscience de la pensée même ?  
-=&gt; j'ai voulu expérimenter la matière et la matière m'a gardé prisonnier ?
-
-It's not a participatory universe at all. The world presents me what it wants. My freedom is to refuse to  
-care and demand something else. Cultivate the mindset to let it arise. The body follows. It is sucked into being more than what it is on its own.
-
-Eprouver de plus en plus de désir et de plaisir à se côtoyer.  
-Et s'ouvrir pour aspirer le meilleur du monde ext  
-Seul cosmogonie qui ait un sens pour moi: nous expérimentons ce que nous avons d'abord imaginé.
-
-L'âme "vit sur terre", s'empreigne de la matière pour apprendre. La logique même, l'intelligence même sont des choses  
-que notre conscience entrevoit mais dont elle n'est pas la cause, elle est simplement l'observateur. Ce qui est intrinsèque:  
-une traction vers le plaisir, une reconnaissance de ce qui est beau. Se concentrer, être dans l'instant présent  
-pour absorber ce qu'elle observe. Quand on conscientise un travail, c'est fastidieux, long, éprouvant au niveau de  
-la concentration. C'est à ce moment que notre conscience fait son oeuvre, transfère / transcrit un vécu dans un champ de conscience.
-
-Je suis conscience, je n'invente rien. Je suis la force autour de laquelle s'affaire l'intelligence pour proposer des mondes.  
-Je suis un spectateur, un chef d'orchestre, un magicien, un charlatan.
-
-Le plus étonant dans tout ça =&gt; pourquoi la conscience semble toujours s'attacher à un périmètre défini du corps,  
-peut se séparer \(split brain\) Ca ca va en faveur d'une conscience générée par le corps.
-
-La mort: seule chose que je peux en dire: La pire douleur c'est de se sentir partir ou de voir partir quelqu'un  
-d'autre avec quelque chose sur le coeur, un travail non achevé.  
-Je voudrais dire je t'aime à tous les gens que j'aime quand je le sens.
-
-## Ré-insuffler une attitude spirituelle en une respiration
-
-C'est un mélange de rage joyeuse, de légèreté intense, de tendresse profonde et détachée \(importance de l'oxymore\).
-
-1. L'observateur choisit sur quoi il se fixe \(mais alors ce n'est pas seulement un observateur !  
-   quel part d'intelligence possède-t-il. Et pourquoi pas une conscience étendu au delà du corps ou du moins des étendus de conscience plus variées?\)
-
-2. Les deux: le corps-esprit offre une niche possible pour la conscience \(et il FAUT qu'il y ait une conscience,  
-   a priori pas de zombies\). A l'intérieur de ce cadre, l'observateur est tel un zappeur qui a un certain degré de  
-   liberté \(== des chaînes disponibles dans la métaphore\) correspondant au processus du corps-esprit.
-
-Great life is about questions and answers. But those are not necessarily linked:
-
-* Find / deepen great / crucial / exciting questions about yourself
-* Help others solve issues of their own
-* Discover awesome solutions to problems you've never had
-* Play with amazing stuff your hands happen to create
-
-En lien avec le commentaire précédent, à ajouter dans les gros kiffs:
-
-* Recherche de l'extase pure
-
-Sinon importance de la question, de trouver des poblèmes et de les creuser, de les prendre dans ses mains et les  
-regarder sous plusieurs angles. Je sus obsédé par les réponses, les solutions, mais je sens bien que c'est dans  
-cette phase analytique que je "suis" vraiment.
-
-Est-ce que dans ce sens l'imperferction n'est pas une chose désirable car elle signifie un mouvement d'épanouissement ?  
-Une perfection \(théorique\) serait l'équivalent d'une beauté morte / immobile.
-
-Yet another cosmogony: I am the very same spirit that has inhabited every living thing there is, one at a time but  
- all at the same time in fact. I or something has created a refinement of primitives archetypes and I got to allow it to express by infusing energy.
-
-C'est quoi la spiritualité ?  
-pour le comment:
-
-* broaden \(~de-fragment\)
-* relax \(unfocus tensions actually, but my body understands it as 'it's better for you to
-  **release**
-  tension'\)
-* welcome / invoke the pleasurable
-* empower calls for action =&gt; ces choses semblent être de l'ordre du libre arbitre.
-
-I need to, I want, I should reasonably, It's my spiritual inclination and profund desire to hope for  
-crazy stuff \(being a breatharian\). I'd better, it's useful, it feels good \(being here and now\),  
-to doubt \(and mock ?\) the possibilty of it as is but find clever / unexpected paths to achieve the underlying goal  
-\(don't kill to live, don't burn that much energy out of beauty\)
-
-Ce qui parle plus à mon instinct: la force de la méditation, de la sagesse, c'est de nous faire voir une de nos  
-fragmentations **par les yeux **d'une autre. C'est la perspective, le dialogue, la capacité d'y revenir qui fait une richesse ?
-
-Pourquoi fondamentalement je ne fais pas confianec à la techno / le "progrès" aveugle pour régler les "problèmes de l'humanité" =&gt; j  
-e crois soit à faire confiance à des mécanismes robustes qui n'ont pas besoin de surveillance / intervantion du tout  
-\(la nature par définition\) soit une intense et soutenue conscience \(qui par définition n'est pas viable,  
-elle doit permettre de trouver des mécenismes naturels\). Si la conscience basique des hommes et de façon  
-étendue de la société était satisfaisante, on saurait déjà bien mieux comment gérer ce pour quoi on a en même t  
-emps le plus de stimulis et d'intérêts: nous mêmes. Or on passe notre temps à nous lamenter de travailler  
-trop et se lancer à corps perdu dans le travail, on critique les autres pour leur égoisme quand on fait pareil  
-\(l'environnement par ex\) =&gt; ne me dites pas que de base la conscience humaine conduit à "tout va pour le mieux dans le meilleur des mondes".
 
 Je dis que je ne suis que conscience, que mêmes mes pensées sont de l'ordre du corps. Je ne suis que cette chose dans  
 laquelle émerge des objets, comme un écran de cinéma vierge. Mais ça veut que cette chose qui n'est pas moi et  
