@@ -5,11 +5,13 @@ Overthink and let come: faire circuler la pensée \(analyse / synthèse, insuffl
 Bénéfique pour moi et les autres: quelles sont nos intentions respectives ? En particulier celles qui sont rampantes. Ex: espérer la séduction amoureuse en externalité positive à l'introspection et au partage de ses résultats. Ca peut parfois devenir le but principal sans qu'on s'en aperçoive =&gt; dés-alignement entre pensée consciente et motif réels =&gt; Aïe !
 
 Cédric  
-Babbles web articles about analysing his minds  
-Makes hypnosis consultations  
+Babbles web articles about analysing his minds and making guesses about yours  
+Makes hypnosis consultations to help people reflect on their own logical flaws to get in the flow  
 Geeks around interfaces between meditation and music  
 Thrives to get wild and raw into a progressist and urban lifestyle  
-Give away ideas
+Enjoying being around socially active people, just bathin'in  
+Give away ideas  
+Loves not to conform to his own definitions, however exciting or accurate
 
 Your Grandmother Was Right, But She Didn’t Know Why  
 I have no shame in using the vocabulary someone uses \(light nourishment\) for Google searches but to express myself I allow to use a word that resonates more.
@@ -78,6 +80,22 @@ Un mal être est une forme de dés-alignement ? Et on est paumés face aux solut
 Je ne me suis jamais senti aussi prêt à "être moi" \(ce qui est le sentiment le plus joyeux que je connaisse\) que lorsque je me suis dit que j'étais victime et impuissant face à une maladie mystérieuse. Suffit de checker que je m'auto-sabote pas.
 
 Idée marrante à triturer: des fois j'ai l'impression que la meilleure manipulation \(arriver à ses fins avec les autres ou soi\) c'est d'être complètement ouvert sur ses objectifs et dans une dialectique totale. "Pay forward" aussi. =&gt; "Sweet patterns of negative thinking"
+
+L'art: pour moi l'"art", c'est le regard qui se porte sur "quelque chose" et interprète une intention =&gt; Dialectique intention / interprétation. Ex: je regarde le paiper peint des chiottes et c'est une jungle qui s'offre à moi. Donc à la fois une intention intiale et une interprétation \(correcte ou non\). interprétation: peut être un jeu de recherche de l'intention ou alors l'artiste tient au contraire à être clair sur ses intentions. "Art moderne" de l'art ? Une poubelle déversée de l'art ? Pour moi oui. Fainéant quand ça a déjà été fait. Banksy c'est coolos dans l'interrogation que ça pose.
+
+Amour, on veut quoi ?  
+- sexe  
+- connection humour  
+- connection philosophique / valeurs  
+- tendresse physique  
+- une personne pour qui on compte plus que les autres: sentiment d'unicité, d'être désirable, apaisement du sentiment de solitude, être rassuré en cas de coup dur \(si je suis à l'hôpital, je m'attends à ce qu'il / elle soit à mes côtés\)  
+- une personne qui pour nous compte plus que les autres: s'offrir, soigner, prendre soin  
+- être dans le flow: drogue bizarre de l'amour qui a des externalités positives  
+- être en couple pour pouvoir sortir avec d'autres couples  
+- créer des souvenirs plus forts \(type voyage\) parce que co-créés et qu'on part dans l'idée que la relation est éternelle  
+- avoir des enfants: créer un héritage, une histoire biologico-humaine qui nous dépasse complètement.
+
+
 
 
 
