@@ -103,5 +103,18 @@ Voir pour agir. Ce que j'aime dans le journalisme, la photo ou le dessin humoris
 * les déchets c'est quoi ? montrer ce qu'on brûle de déchets
 * manger de la viande ? montrer la chaîne de production
 
+Choses a priori + à lier à un boulot:  
+- Besoin de légèreté / aventure / évasion  
+- Un domaine ou on a envie d'être critiqué pour progresser  
+- Un sentiment d'être utile aux autres  
+- Un sentiment de sécurité lié aux compétences développées et au fait qu'on développe son avantage concurrentiel \("je suis capable de chasser et de me nourrir en milieu hostile comme personne"\)
+
+Choses a priori - à lier à un boulot:  
+- Une envie de progresser sur un aspect de soi qui nous fait défaut \(mais pour lequel on a pas de passion\)  
+- Une recherche de sens existentialiste  
+- De façon générale: mettre trop d'oeufs dans le même panier
+
+
+
 
 

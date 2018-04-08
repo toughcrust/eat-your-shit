@@ -4,9 +4,6 @@ Our natural biases can range from the inconsequential—cognitive shortcuts that
 
 **Holy shift - awareness shifting design**
 
-[https://m.signalvnoise.com/running-in-circles-aae73d79ce19](https://m.signalvnoise.com/running-in-circles-aae73d79ce19)  
-[https://m.signalvnoise.com/position-position-position-34b510a28ddc\#.c52p6x2pl](https://m.signalvnoise.com/position-position-position-34b510a28ddc#.c52p6x2pl) =&gt; jouer sur ses "faiblesses" pour en faire des forces. Rejoint mon idée qu'en étatn ouvert sur ses faiblesses, on découvre la force qui se cache derrière.
-
 I AM A CONVIVIALIST SHIT DIGGER
 
 Mon obélisque of needs:
