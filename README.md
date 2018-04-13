@@ -7,8 +7,8 @@ Bénéfique pour moi et les autres: quelles sont nos intentions respectives ? En
 Cédric
 
 What I actually do: ...  
-What I envision for myself: ...  
-  
+Projects and self-marketing I envision for myself: ...
+
 Babbles web articles about analysing his minds and making guesses about yours  
 Makes hypnosis consultations to help people reflect on their own logical flaws to get in the flow  
 Geeks around interfaces between meditation and music  
@@ -228,7 +228,7 @@ big laugh, bigmouth, looking after of the offspring**. Having been satisfied an 
 
 Vous vous ennuyez, les gens! L’actif en vous, le vif, a perdu ses adversaires, se morfond, n’a, pour ses conquêtes, plus d’espace, plus de front où aller tremper le métal de ses os ! Plus de quoi s’user, épuiser ses forces, hein? Ah si : dans les petits plaisirs : les capsules, les stimulations artificielles, la virtue, le jeu, les images… **Les gens ne sont pas morbides : ils veulent juste de l’intensité**
 
-**désintéressement passioné ! globalement les oxymores ça marche bien**. ça capture le besoin de mouvement.
+**désintéressement passioné ! globalement les oxymores ça marche bien**. ça capture le besoin de mouvement. `Désintéressement passionné et autres définitions par oxymore: capture du mouvement et des polarités du mental`
 
 `for a life full of meaning, you don't follow your passions, your passions follow you` \(contexte: faire ce qui nous attire, là où on réussit, la psssion suivra\)
 
