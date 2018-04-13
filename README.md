@@ -4,7 +4,11 @@ Overthink and let come: faire circuler la pensée \(analyse / synthèse, insuffl
 
 Bénéfique pour moi et les autres: quelles sont nos intentions respectives ? En particulier celles qui sont rampantes. Ex: espérer la séduction amoureuse en externalité positive à l'introspection et au partage de ses résultats. Ca peut parfois devenir le but principal sans qu'on s'en aperçoive =&gt; dés-alignement entre pensée consciente et motif réels =&gt; Aïe !
 
-Cédric  
+Cédric
+
+What I actually do: ...  
+What I envision for myself: ...  
+  
 Babbles web articles about analysing his minds and making guesses about yours  
 Makes hypnosis consultations to help people reflect on their own logical flaws to get in the flow  
 Geeks around interfaces between meditation and music  
