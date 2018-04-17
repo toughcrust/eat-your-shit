@@ -1,20 +1,23 @@
+Quetions pas forcément intéressantes \(voire nocives\) dans l'absolu mais qui apaisent de temps en temps:  
+What does it feel like to deeply love yourself?  
+Who is gonna be you if you are not ?
+
+
+
 Ma définition de la spiritualité: la pensée qui suit le vertige d'une question telle que "Qu'est-ce que je fais là ? WTF is I BTW ???"
+
+"Prendre conscience": devenir spectateur de tes propres pensées. Et même t'observer t'observer !  
+Il y a là un mouvement, une tension de réflexion sur soi-même" =&gt; vertige de la "spiritualité" ! Pour être maintenu en état, pour ne pas cristalliser dans un clicé, besoind'un mélange de rage joyeuse, de légèreté intense, de tendresse profonde et détachée \(importance des oxymores !\) 
+
+Et quand on prend ses aises en tant que spectateur, il se passe un truc fou: celui qu'on regarde vivre \(~soi\) se libère, s'épanouie. 
 
 Dans ma spiritualité, c'est l'inverse de ce qui est recherché d'habitude: je cherche à me libérer de tout esprit, de toute influence de l'univers. Des déterminismes, des désirs extérieurs. Par la méditation je ne me connecte pas à l'univers: j'expulse, je lui rends ce qu'il met en moi.  
 Vouloir se connecter à une partie de soi qui serait loin est un non sens source de souffrance, d'incompréhension, d'illusion, de doutes. Par définition MOI m'est accessible. Plus je dépollue t mieux / davantage je me vois. Il faut que je me dépollue de l'univers.  
 Une fois libéré, en extase, je peux digérer, ralentir, choisir ce qui rentre ou pas dans mon corps. J'analyse les sons et je me laisse vibrer par ceux qui résonent en moi. Je commence doucement et je peux comme ça devenir une musique à moi seul.
 
-**De la tendresse pour moi et les autres**
+**De la tendresse pour moi et les autr**
 
-> Consciousness is simply the light by which the contours of mind and body are known \[...\] Making this discovery, again and again, is the basis of spiritual life.
-
--
-
-> Pleasure is the only thing worth having a theory about
-
-Ce qui a une consistance, ce sont le plaisir et la douleur. Derrière une morale rigoriste se cache une recherche de plaisir voilée, qui ne dit pas son nom. Les désirs de plaisir n'ont pas de raison d'être réalistes:
-
-> La frustation existentielle n'est pas pathologique
+Ce qui a une consistance, ce sont le plaisir et la douleur. Derrière une morale rigoriste se cache une recherche de plaisir voilée, qui ne dit pas son nom. Les désirs de plaisir n'ont pas de raison d'être réalistes
 
 Se poser la question de ma propension à la joie ne peut a priori que l'étendre. Postuler une quelconque limitation impose une restriction volontaire. C'est la même chose pour le libre arbitre.
 
@@ -35,8 +38,6 @@ Ceux qui prônent des voies vers la joie, le bonheur, parlent souvent depuis une
 Je crois en tout pour m'illusionner le moins possible. Ne pas croire ou croire à des degrés établis c'est se reposer davantage sur la croyance. Il n'empêche que mon corps estime l'adéquation, la fiabilité des croyances, dés qu'une décision vitale est nécessaire.
 
 **On se pose souvent la question "Est-ce que ce que j'imagine est possible ?". La vraie question est "Est-ce que je peux imaginer quelque chose qui est impossible?"**
-
-What does it feel like to deeply love yourself?
 
 Exciting narratives, those "Nolan" like ones where crazy connections and cliffhangers uproot you, project you in a new form of life no one has ever explored.  
 Which seems to be what life is about. To keep balance, I should multiply those narratives, keep them at once and alive in my head.
@@ -80,7 +81,7 @@ Avec ces deux "guides contradictoires non prouvables" je trouv ma propre lierté
 
 # My very own indie sprirituality
 
-La vie est un combat \("Do not go gentle into that good night"\). Vers la joie et dans la joie dés que possible. Savoir de quoi on est fait a pour seule utilité de connaître nos forces et nos peurs. Nos forces pour s'en servir, nos peurs pour les regarder en face et les voir fondre. Sachant cela, le combat et la joie se nourrissent des idées reçues dont on s'affranchit.
+
 
 Conscience is the crisis room of issues of all sorts: existential questions, immediate survival
 
@@ -99,19 +100,15 @@ EN TOUT CAS =&gt; toute cosmogonie est intéressante quand elle nous aide à voi
 =&gt; montre moi en quoi je suis particulier par rapport aux utres êtres humains, mon ego n'a pas besoin d'être caressé,  
 j'ai juste besoin de matérialiser la scuplture de moi même.
 
-## A bonne distance de l'écran
-
-Take a still higher / bird's eye view point of view: get ready for when rules change.
-
 When you suddenly have thoughts the game designer would have while you're actually planning:
 
 * Why do we have a compulsion to love and have children
 * Why is there gravity ? Why does the sun burn eyes ?
 * What is that like to be a worm ?
 
-Tu peux alors devenir spectateur de tes propres pensées. Et même t'observer t'observer !  
-Il y a là un mouvement, une tension. Donc \(en prenant avec des pincettes des choses aussi floues\) "être spirituel"  
-c'est "rester dans un mouvement de réflexion sur soi-même".
+
+
+
 
 Je regarde mes mains. Est-ce que c'est bien les miennes ? C'est quoi moi ? C'est quoi une main ? Comment est apparu le mot main ? Commnt suis-je apparu ?
 
@@ -124,36 +121,18 @@ Je regarde mes mains. Est-ce que c'est bien les miennes ? C'est quoi moi ? C'est
 La conscience ressemble terriblement à s'imaginer en train de se regarder vivre pépère posé devant la télé.  
 Et regarder ce même spectateur \(Sur Youtube :b\).
 
-Et quand on prend ses aises en tant que spectateur, il se passe un truc fou: celui qu'on regarde vivre se libère, s'épanouie. Pensées connexes:
 
-* Refuser l'impossible objectivité du journalisme, embrasser son regard aiguisé, scruteur, voyeur, cru.
-  La vraie objectivité est dans le discernement partial. Dans le kaléidoscope. Reste la conviction qu'il existe un observateur
-  possible qui se débarasse de ces émotions. Refuser les émotions c'est encore en fait une vue partiale.
-  le plus proche que je sache faire de l'objectivité: respirer calmement et dire tout ce qu'il se passe dans ma tête.
-* Pas de solutions sans problèmes. Or on adore trouver des solutions. Trouvons des bons problèmes !
-  C'est le rôle du spectateur \(Je zappe ça me fait chier\)
 
 Esprit scientifique pour moi:  
 \*\*Je ne crois que ce que je vois\*\*  
 Ce qui veut dire que je ne crois pas que la science comme connaissance soit source de vérité. Car elle suppose une invariance de l'univers.
 
-Un tel esprit scientifique pur n'accouche de rien. Pour être fécond dans cette construction \(ou falsification\) de la "vérité" scientifique il faut:  
-1. Des axiomes de base  
-2. Un guide la beauté ou l'utilité \(qui eux-mêmes deux modalités du plaisir in fine\)
-
 Reste un ensignement précieux de "Je ne crois que ce que je vois":  
 Tant que je ne vois pas \(au sens où ça devient une évidence dans mes tripes\), je "dois" \(au sens il est plus sage\) croire en tout.  
 Car ne pas croire ou douter de quelque chose, notre inconscient l'interprète comme quelque chose de faux.
 
-## Une bonne dose d'humour
-
-Se marrer ensemble, dans une situation que l'on s'est créée: qu'est-ce qui veut avoir plus d'importance ? Et si l'univers  
-nous a créé dans un but bien différent, est-ce qu'il ne faut pas du coup lui rire à la gueule ? =&gt; ou le combattre !! sausage party !!
-
-à quel point humour et science sont la même chose ? Je pense que l'humour est le lien entre corps-esprit et spiritualité-science.  
-C'est la passerelle subtile entre ces deux choses qu'on ne sait pas dissocier.
-
-## The "ever" very close: the un-fragmented experience
+Se marrer ensemble, dans une situation que l'on s'est créée: qu'est-ce qui peut apporter plus de plaisir ? Et si l'univers  
+nous a créé dans un but bien différent, est-ce qu'il ne faut pas du coup lui rire à la gueule et/ ou le combattre \(sausage party\)
 
 Se rendre compte que la vie en état d'éveil ressemble à un rêve dont on peut s'éveiller \(et il semble,  
 indéfiniment: il y a toujours un observateur qui observe ou du moins je n'ai jamais vu le bout\)  
@@ -225,11 +204,7 @@ sagesse, renvoie une partie de nous en cage et la tourmente, sa sagesse est à r
 Peut-il y avoir une connaissance consciente de limitation du libre arbitre ? Ca renvoie à une impossibilité: en tout libre-arbitre  
 décider de si l'on croit ou non que notre libre arbitre est un leurre. C'est indécidable.
 
-On cherche à créer de la chaleur, de la vie, du mouvement à partir du froid / du vide / du néant. **Create warmth.**
-
 Je suis pure conscience, je n'invente rien. Je suis le puits gravitationel dans lequel s'engouffre l'intelligence. Quand je m'imagine ça, je me détends, j'arrête d'essayer de forcer ce que je veux voir émerger \(des idées excitantes qui réalignent mes problèmes\) et ça marche. Donc c'est vrai ? Ou prophétie auto-réalisatrice ?
-
-Une attitude "spirituelle", c'est un mélange de rage joyeuse, de légèreté intense, de tendresse profonde et détachée \(importance de l'oxymore qui garde dans le mouvement, évite la cristallisation.\)
 
 
 
