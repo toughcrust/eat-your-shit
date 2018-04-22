@@ -1,4 +1,4 @@
-#### Overthink and let come
+#### Overthink and let come. Overthink and channel
 
 Overthink and let come: faire circuler la pensée \(analyse / synthèse, insufflation / expiration, ...\) pour passer d'un sentiment vague "it kinda feels right" à une décomposition minutieuse des résonances dans les différentes strates de la conscience \(pensée, émotions, logique, etc ...\).
 
@@ -442,6 +442,4 @@ comment peut-elle ? Ca me fait penser au fait de supposer les autrs humains dot�
 Donc question perturbante: y aurait-il dans mon corps une conscience qui essaie de communiquer avec la mienne ?  
 split brain =&gt; des centres de consciences séparés ou bien une conscience qui n'a plus accès qu'à une partie de la vie  
 pensante ? Dans les intestins: un centre émotionnel qui serait conscient de l'autre ?
-
-
 
