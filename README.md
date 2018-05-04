@@ -1,60 +1,42 @@
-#### Overthink and let come. Overthink and channel
+Le mal être / la maladie créent une rétention de tout sans nuance: on réprime la joie, l'amour inconditionnel. L'esprit critique continue de tourner et on s'auto accuse de se réprimer ... 
 
-Overthink and let come: faire circuler la pensée \(analyse / synthèse, insufflation / expiration, ...\) pour passer d'un sentiment vague "it kinda feels right" à une décomposition minutieuse des résonances dans les différentes strates de la conscience \(pensée, émotions, logique, etc ...\).
-
-Bénéfique pour moi et les autres: quelles sont nos intentions respectives ? En particulier celles qui sont rampantes. Ex: espérer la séduction amoureuse en externalité positive à l'introspection et au partage de ses résultats. Ca peut parfois devenir le but principal sans qu'on s'en aperçoive =&gt; dés-alignement entre pensée consciente et motif réels =&gt; Aïe !
-
-Cédric
-
-What I actually do: ...  
-Projects and self-marketing I envision for myself: ...
-
-Babbles web articles about analysing his minds and making guesses about yours  
-Makes hypnosis consultations to help people reflect on their own logical flaws to get in the flow  
-Geeks around interfaces between meditation and music  
-Thrives to get wild and raw into a progressist and urban lifestyle  
-Enjoying being around socially active people, just bathin'in  
-Give away ideas  
-Loves not to conform to his own definitions, however exciting or accurate
-
-Your Grandmother Was Right, But She Didn’t Know Why  
-I have no shame in using the vocabulary someone uses \(light nourishment\) for Google searches but to express myself I allow to use a word that resonates more.
+Que deviendra ma peur si j'étends ma zone de confort ?  
+Est-ce que c'est possible de faire cette chose qui me paraît impossible ?  
+S'éclater semble toujours impliquer vaincre une appréhension.  
+On se pose souvent la question "Est-ce que ce que j'imagine est possible ?". La vraie question est "Est-ce que je peux imaginer quelque chose qui est impossible?"
 
 Kinda cool, kinda scary. But mostly cool: if you take the time to investigate, you WILL know better than about everyone
 
-Be good at is what at what you are willing to be criticized about.  
+Be good at is what at what you are willing to be challenged about.  
 On most things people are content with having knowledge they hold "true": it serves them. Prove dem wrong and then get annoyed.
 
-On questions such as "Is there a God ?" we like to go straight and try an answer cause it's fun. But if the question actually matters, it's much more useful to figure out the kinds of answers you may get, how it would shake your beliefs and what you'd do from there. For example, even if there was indeed an old guy who had all power and knowledge, would you accept to submit to him ? As for me, I ask why should I ? It does not make sense. So yes the question is still funbut I don't bas the core of my existential beliefs on its answer \(at least not completely\).  
-**Better question maybe: "What's the meaning of life ?": whatever simple sentence proposed, I cannot imagine my mind not questionning it \(and having pleasure in rebelling\) thus expressing a desire of liberation from a given meaning =&gt; There is a logic to solve here =&gt; Article MEDIUM "What is the meaning of the meaning of life ?"**
+Il y a toujours une autre façon de faire, ne serait-ce que celle qui consiste à abdiquer en faisant un gros 🖕 
 
-I can't imagine any definitive answer on such a topic not to be mind blowing. And when you have a look at the best movies out there, I find that what they do the best is firing infinite possibilities \(more questions than answers\) in your mind. Somehow I can't help but see in popular movies and video games \(or children playing\), a small scale re-play of what is the core creativity of the universe. Like clues or puns.
-
-"Thank you so much for what you give me. I owe you gratefulness and criticism that comes from the heart."
-
-"There is a lot I'd like to do and cannot find time to. I'd also like to be way more carefree"
+Overthink and let come: faire circuler la pensée \(analyse / synthèse comme une insufflation / expiration, ...\) pour passer d'un sentiment vague "it kinda feels right or wrong" à une décomposition minutieuse des résonances dans les différentes strates de la conscience \(pensée, émotions, logique, etc ...\).
 
 rage & joie & tristesse FTW \(transmuter en émotions basique c'est sain\)
 
-La détente amène à ressentir des forces puissantes qui tiraillent dans différentes directions. Et les laisser se battre pour de vrai \(**arrêter d'être un mec qui arrive en plein milieu de la mêlée et qui se fait tabasser :D**\)
+"Je" me fais tabasser par les forces qui s'affrontent en moi :D. Se détendre c'est laisser le combat se dérouler.
 
-Deux règles de vie simples: auto validation et auto dérision =&gt; Ou plus simplement l'amour de soi ? Amour de soi: une facette de cette énergie qui nous anime et qu'on a intérêt à laisser se déployer et tout défoncer sur son passage ?
+"Thank you so much for what you give me. I owe you gratefulness and radical honesty."
 
-Y'a-t-il une différence fondamentale entre la digestion \(1\) en bouche et \(2\) celle des intestins ? \(2\) sans \(1\) a l'air souvent nocif: Addiction à des produits raffinés \(sucre, choco\).
+Auto validation et Auto dérision
 
-Notre cerveau cherche tout de suite à optimiser. L'idée qui l'obsède dans la seconde doit permettre de gagner de l'argent, rendre heureux, célèbre et bien entouré. Tout le rôle de la conscience est de donner du grain à moudre. Ralentir et faire réfléchir davantage.
+BE an ever cooler party
 
-Be the person and the experiences you'd like to meet and connect with in a cocktail party. But the coolest cocktail party ever. Tiens est-ce que ce serait pas extrêment sain de définir précisément ce que serait ce "cocktail party" !!?? à quoi les gens rient, qu'est-ce qu'on y mange ? qui sont-ils ? C'est quoi la musique qui passe ?
+Une critique n'est dure à encaisser que lorsqu'elle fait écho à une auto-critique
 
-Vivre son utopie, c'est pas de l'aveuglement ou lutter contre des montagnes. C'est céder à a la facilité de construire son monde et la préparation à accueillir ce que les autres proposent.
 
-**The holidays feeling**  
-Quand je prends une douche froide  
-Quand je sors de moi même pour parler avec enthousiasme, ré-analyser
 
-Digérer toute pensée ! La mettre sur papier avec détail et clareté. Même si c'est dimanche \("sunday checkout"\)
+Bénéfique pour moi et les autres: quelles sont nos intentions respectives ? En particulier celles qui sont rampantes. Ex: espérer la séduction amoureuse en externalité positive à l'introspection et au partage de ses résultats. Ca peut parfois devenir le but principal sans qu'on s'en aperçoive =&gt; dés-alignement entre pensée consciente et motif réels =&gt; Aïe !
 
-"l'amour inconditionnel" tel que je peux l'envisager: "Comme moi tu fais de la merde inacceptable, ce qui n'est pas incompatible avec un amour puissant qui nous fait un putain de bien à tous."
+
+
+Better question than "What's the meaning of life ?": whatever simple sentence proposed, I cannot imagine my mind not questionning it \(and having pleasure in rebelling\) thus expressing a desire of liberation from a given meaning =&gt; "What is the meaning of the meaning of life ?". I can't imagine any definitive answer on such a topic not to be mind blowing. And when you have a look at the best movies out there, I find that what they do the best is firing infinite possibilities \(more questions than answers\) in your mind. Somehow I can't help but see in popular movies and video games \(or children playing\), a small scale re-play of what is the core creativity of the universe. Like clues or puns.
+
+
+
+
 
 dans la discussion avec soi ou les autres: toujours utile et enrichissant de déployer sa pensée à "voix haute" sans honte \(et en se laissant même la possibilité d'exprimer ses réticences à surpasser sa honte\), sans chercher à cacher les pistes mal dégrossies / moins séduisantes / contradictoires. Bref tout déployer comme un plan avant l'attaque, jouer cartes sur tables.
 
@@ -64,8 +46,6 @@ T'as déjà remarqué comme c'est plus simple de donner des conseils et même d'
 Et bah c'est pareil pour toi: fais-toi aider:  
 C'est + simple, ça fait grandir, c'est l'occasion de créer un vrai lien  
 Parler de son combat de manière détachée, pour mieux le voir se matérialiser sous ses yeux.
-
-Essayer d'être un "geek" de ses peurs ? Est-ce que c'est une richesse que je peux exploiter ?
 
 Jacques Salomé. Les relations avec les autres sont kiffantes quand notre relation à nous mêmes l'est déjà. La solitude est féconde. C'est l'écho chez l'autre de mes émotions qui créent des instants / des relations extatiques qui semblent échapper à l'utilitarisme.  
 Toujours libérateur à relire:
@@ -196,13 +176,9 @@ Se relaxer, se détacher de son corps pour laisser libre cours à son intelligen
 Design: it’s about understanding your problem so well that the solution is obvious.  
 On a personal level why design ? For the frickin' exctasy of "Ahah moments"
 
-On adore trouver des solutions. Trouvons des bons problèmes ❤❤❤ !
-
 Shitstorm. Bizarrement pas forcément facile de savoir pourquoi une idée nous semble révolutionnaire / intéressante et donc comment communiquer autour / comment la développer. La préciser en faisant le travail en négatif "Pourquoi X pue la mere actuellement ?", "Comment X se passerait dans un monde horrible ? " ...
 
 Partir de la pllénitude. Ex, pour écrire un bouquin: commencer par écrire une phrase. La développer jusqu'à ce que ce soit un bouquin complet. It is finished when you start it. It just deepens till it feels complete.
-
-Echec. Dur à encaisser quand on investit de l'énergie mais qu'on a pas envie de devenir meilleur \(== blessure d'ego de celui qui cherche un statut plutôt que la maîtrise d'un art\). Peut au contraire s'avérer constructif si on est dans une démarche "désintéressée" de pousser une idée à fond et de voir si elle peut résister aux épreuves.
 
 **Inspiring oxymorons**
 
@@ -218,10 +194,7 @@ Actually it is even a pre-requisite: how the hell do you want to tackle an issue
 
 Having fun makes it easy to get seriously excited \("An app where your mother creates your profile" as a starting point for the sad state of relationships these days\)
 
-**métenpsychose**  
-Quand je pense à la métenpsychose, au faut d'avoir vécu plusieurs vie, à l'astrologie qui nous confère des archétypes à des poids relatifs plus ou moins élevés, j'ai cette même sensation que lorsqu'on découvre une vérité caché qui a soudain l'air évidente. Ca explique tellement de choses sur comment on se comporte malgré notre famille et nos déterminants physiques / sociaux. En même temps se dire que ce n'est qu'une impression c'est libératur \(autant que l'acceptation comme vérité !\), que c'est du bullshit que simplement le plus raisonable en l'état est: je nais avcc la mâturité, le vécu, de vies imaginées mais dont la puissance est omniprésente. Je vais bien mourir et avec mon corps toute cette expérience \(c'est en tout cas la version la plus raisonnable\).
-
-Nous bâtirons un rêve inespéré, une simplicité d'abondance et de beauté insoupçonnée sur les ruines d'une croyance aveugle dans une fuite en avant technocrade, fébrile et sourde aux désirs profonds. Au triste et lamentable projet de détruire la terre pour se réfugier en des lieux bien plus hostiles encore  \(qui n'est en fait motivé que par le desir prestige\) nous puiserons nos ressources dans leurs déchets et leur conneries, nous serons les recycleurs des futurs de merde. Les limitations que l'on s'impose ne font pas de nous des hommes de petite ambition, elles font des nous des hommes dune détermination effrayante.
+Nous bâtirons un rêve inespéré, une simplicité d'abondance et de beauté insoupçonnée sur les ruines d'une croyance aveugle dans une fuite en avant technocrade, fébrile et sourde aux désirs profonds. Au triste et lamentable projet de détruire la terre pour se réfugier en des lieux bien plus hostiles encore \(en fait uniquement motivé par le désir de briller\) nous puiserons nos ressources dans leurs déchets et leur conneries, nous serons les recycleurs des futurs de merde. Les limitations que l'on s'impose ne font pas de nous des hommes de petite ambition, elles font des nous des hommes dune détermination effrayante.
 
 I'd like to age in something like a badass transsexual grandpa eventually. You know, **no shit, low appetite,  
 big laugh, bigmouth, looking after of the offspring**. Having been satisfied an all levels, I now take pleasure in nurturing lifes, Life, what may live ...
@@ -232,15 +205,9 @@ Vous vous ennuyez, les gens! L’actif en vous, le vif, a perdu ses adversaires,
 
 `for a life full of meaning, you don't follow your passions, your passions follow you` \(contexte: faire ce qui nous attire, là où on réussit, la psssion suivra\)
 
-Assouvir en sublimant
 
-### Indie mind trick
 
-Quetions pas forcément intéressantes \(voire nocives\) dans l'absolu mais qui apaisent de temps en temps:  
-What does it feel like to deeply love yourself?  
-Who is gonna be you if you are not ?
-
-Ma définition de la spiritualité: la pensée qui suit le vertige d'une question telle que "Qu'est-ce que je fais là ? WTF is I BTW ???"
+Ma définition de la spiritualité: le vertige de se dire "Qu'est-ce que je fais là ? WTF is I BTW ???"
 
 "Prendre conscience": devenir spectateur de tes propres pensées. Et même t'observer t'observer !  
 Il y a là un mouvement, une tension de réflexion sur soi-même" =&gt; vertige de la "spiritualité" ! Pour être maintenu en état, pour ne pas cristalliser dans un clicé, besoind'un mélange de rage joyeuse, de légèreté intense, de tendresse profonde et détachée \(importance des oxymores !\)
@@ -273,29 +240,14 @@ Ceux qui prônent des voies vers la joie, le bonheur, parlent souvent depuis une
 
 Je crois en tout pour m'illusionner le moins possible. Ne pas croire ou croire à des degrés établis c'est se reposer davantage sur la croyance. Il n'empêche que mon corps estime l'adéquation, la fiabilité des croyances, dés qu'une décision vitale est nécessaire.
 
-**On se pose souvent la question "Est-ce que ce que j'imagine est possible ?". La vraie question est "Est-ce que je peux imaginer quelque chose qui est impossible?"**
+
 
 Exciting narratives, those "Nolan" like ones where crazy connections and cliffhangers uproot you, project you in a new form of life no one has ever explored.  
 Which seems to be what life is about. To keep balance, I should multiply those narratives, keep them at once and alive in my head.
 
-Ce qui est beau, pur et désirable dans l'amour: met en lumière, éveille, meut ce que je trouve beau en moi. Ne pas perdre de vue qu'on cherche le contact de l'autre, de l'altérité pour se voir et se trouver beau.
-
 Fondamentalement, je tourne souvent autoir de la question "which rules should I follow ?". En fait "What rules do I want ?" est plus facile et plus intéressante
 
----
 
-Le tantra, de ce que j'en connais c'est de chercher d'abord avec soi l'amour sensuel, physique. Se l'offrir. Je vois dans la "cure par la parole" l'équivalent pour le mental. Il faut réussir à réaliser que je ne suis un être humain à part entière que ma parole a surtout vocation à m'aimer moi-même plutôt que les autres. Ce phénomène où je suis excité par les projets des autres et je les encourage, il serait bien plus efficace vis à vis de moi même: si j'arrive à me parler avec la même clarté que si c'était quelqu'un d'autre et m'écouter avec le même respect que si c'était qqun d'autre, ce serait bien plus nourrissant. Je n'attend pas désespérément du monde extérieur qu'il m'encourage celui que j'aimerais être, je ne voudrais pas désespérément influencer les autres et vivre par procuration.
-
-Idée marrante: la vie, les rêves c'est de l'hypnose. Je suis un hypnotiseur de ce corps \(du "subconscient"\) et il y en a d'autres !.  
-Je suis: un observateur + un hypnotiseur par le verbe.
-
-Only thing that matter: having stuff to share in a party with like minded open people. What parties ?
-
-* Reggae festival
-* Environmental demonstration
-* Tech event
-* Project managers afterwork
-* Art exhib' opening
 
 mode de pensée plus que religion: auto-fuck  
 le matin devant le miroir: fuck à soi même et se sourir avec compassion  
@@ -303,17 +255,7 @@ avec les autres: les autres sont une chance, se donner et donner les moyens de p
 la dualité, les parts obscures de nos désirs, c'est ce qui créé le mouvement. Comme les électrolytes d'une batterie.  
 Comme le "mauvais cholésterol": pas mauvais en soi, il charrie simplement ce qui tue.
 
-En fait ces 2 cosmogonies:
 
-* Foods of the gods: lente désintox de l'homme
-* L'histoire secrète du monde: la conscience s'est transformée d'êtres connectés en êtres séparés à la vie intérieure développée
-
-sont excellente à garder à l'esprit: toutes les 2 ultra convaincantes, rendent compte de choses qui m'ont toujours parues absurdes \(contes, légendes, mythes, religions\) mais totalement pas en phases sur le plan "moral".  
-Avec ces deux "guides contradictoires non prouvables" je trouv ma propre lierté d'expression. Comme les oxymores me permettent d'exprimer la dualité en moi de tout sentiment \(S'il n'y avait pas de dualité, je serais même incapable de reconnaître un sentiment comme tel ! ce serait juste une attitude qui passerait inaperçue\).
-
-> It is almost as if the world gets calm as you keep calm yourself, and vice versa.
-
-`Alan Watts on WWII`
 
 # My very own indie sprirituality
 
@@ -392,54 +334,5 @@ le présent ?\), qu'une même émotion se dévoile par l'attention. Réagir en s
 encore se fragmenter. L'humour comme décalage apaisant avec les images que l'on s'impose. Invite à la méditation:  
 dé-fragmentation de la pensée. activité spirituelle.
 
-You should not dismiss, diregard what you've experienced. As well there is no point in not trying to outgrow it.  
-Et quend je parle de ça je pense en particulier à la peur, au fait que je craigne un monde plus horrible qu'il ne l'est.  
-Finalement ce n'est pas débile. Mais à quoi bon en rester là ? Parce que la peur ne nourrit essentiellement du fait de ne pas l'affronter justement !  
-Jamais je ne pourrai réduire cette peur à néant, mais que sais-je ce qu'elle deviendra si j'étends ma zone de confort ?
 
-## Cosmogonies
-
-### A manipuler avec précaution
-
-> **\[warning\] Toute cosmogonie est un emprisonnement mental**
-
-Et on est grave attirés par elles, qui qu'on soit !
-
-Mon avis là dessus: **une narration \(= une cosmogonie\) permettant de \(re\)-situer son vécu dans un contexte que l'on  
-oublie / ignore est essentielle. Même si ce contexte est faux ! Confere l'astrologie qui nous fait réfléchir à  
-nous-mêmes, qu'elle affirme une chose ou son contraire**:
-
-> **\[success\] Il faut utiliser une cosmogonie comme un outil ...**
->
-> ... remplaçable permettant de magnifier un trait de notre présent qui a besoin d'une caisse de résonance / de puiser de l'énergie.
-
-Reste la recherche d'une cosmogonie en soi \(sans autre utilité que de satisfaire la curiosité\). Elle gagne à appliquer  
-la même souplesse que le "vrai" scientifique: on construit des modèles de la réalité dans l'unique but de:
-
-* 1/ Rendre compte de la totalité des faits observés
-* 2/ Le fait d'une manière compatible avec la logique fondamentale de l'esprit humain.
-
-On a aucun attachement émotionnel à ce modèle et on est prêt à le chambouler dés qu'il s'avère en décalage avec 1/ ou 2/.
-
-La cosmogonie est à la spiritualité ce que le manuel de TP de chimie organique est à l'expérimentation pure en laboratoire.
-
-Tout ce qui procède de l'amputation, de la mise en place d'oeillères, du changement de perspective \(au contraire d'une multiplicité\)  
-remplace la vie par du vide. Le pire écueil peut être est celui qui fait de la vie un jeu sans âme postulant que notre vie  
-ou une partie d'elle advient quoique nous fassions: nous sommes des animaux biologiquement et socialement déternminés,  
-notre enfance nous modèle, la position des astres au jour de notre naissance indique ce qu'il nous adviendra.  
-Non pas qu'il faille rejeter toute limitation au libre arbitre. Mais lorsqu'une philosophie de vie, au nom d'une plus grande  
-sagesse, renvoie une partie de nous en cage et la tourmente, sa sagesse est à remettre en question.  
-Peut-il y avoir une connaissance consciente de limitation du libre arbitre ? Ca renvoie à une impossibilité: en tout libre-arbitre  
-décider de si l'on croit ou non que notre libre arbitre est un leurre. C'est indécidable.
-
-Je suis pure conscience, je n'invente rien. Je suis le puits gravitationel dans lequel s'engouffre l'intelligence. Quand je m'imagine ça, je me détends, j'arrête d'essayer de forcer ce que je veux voir émerger \(des idées excitantes qui réalignent mes problèmes\) et ça marche. Donc c'est vrai ? Ou prophétie auto-réalisatrice ?
-
-Je dis que je ne suis que conscience, que mêmes mes pensées sont de l'ordre du corps. Je ne suis que cette chose dans  
-laquelle émerge des objets, comme un écran de cinéma vierge. Mais ça veut que cette chose qui n'est pas moi et  
-qui produit ces pensées est elle-même consciente d'être observée !!?? Si oui que cherche-t-elle à communiquer ?  
-comment peut-elle ? Ca me fait penser au fait de supposer les autrs humains dotés d'une conscience similaire  
-à la notre: on en sait rien et pourtant c'est l'une des choses que l'on ne remet pas en cause !  
-Donc question perturbante: y aurait-il dans mon corps une conscience qui essaie de communiquer avec la mienne ?  
-split brain =&gt; des centres de consciences séparés ou bien une conscience qui n'a plus accès qu'à une partie de la vie  
-pensante ? Dans les intestins: un centre émotionnel qui serait conscient de l'autre ?
 
