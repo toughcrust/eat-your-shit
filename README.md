@@ -1,4 +1,4 @@
-Le mal être / la maladie créent une rétention de tout sans nuance: on réprime la joie, l'amour inconditionnel. L'esprit critique continue de tourner et on s'auto accuse de se réprimer ... 
+Le mal être / la maladie créent une rétention de tout sans nuance: on réprime la joie, l'amour inconditionnel. L'esprit critique continue de tourner et on s'auto accuse de se réprimer ...
 
 Que deviendra ma peur si j'étends ma zone de confort ?  
 Est-ce que c'est possible de faire cette chose qui me paraît impossible ?  
@@ -10,9 +10,7 @@ Kinda cool, kinda scary. But mostly cool: if you take the time to investigate, y
 Be good at is what at what you are willing to be challenged about.  
 On most things people are content with having knowledge they hold "true": it serves them. Prove dem wrong and then get annoyed.
 
-Il y a toujours une autre façon de faire, ne serait-ce que celle qui consiste à abdiquer en faisant un gros 🖕 
-
-Overthink and let come: faire circuler la pensée \(analyse / synthèse comme une insufflation / expiration, ...\) pour passer d'un sentiment vague "it kinda feels right or wrong" à une décomposition minutieuse des résonances dans les différentes strates de la conscience \(pensée, émotions, logique, etc ...\).
+Il y a toujours une autre façon de faire, ne serait-ce que celle qui consiste à abdiquer en faisant un gros 🖕
 
 rage & joie & tristesse FTW \(transmuter en émotions basique c'est sain\)
 
@@ -22,21 +20,9 @@ rage & joie & tristesse FTW \(transmuter en émotions basique c'est sain\)
 
 Auto validation et Auto dérision
 
-BE an ever cooler party
-
-Une critique n'est dure à encaisser que lorsqu'elle fait écho à une auto-critique
-
-
-
 Bénéfique pour moi et les autres: quelles sont nos intentions respectives ? En particulier celles qui sont rampantes. Ex: espérer la séduction amoureuse en externalité positive à l'introspection et au partage de ses résultats. Ca peut parfois devenir le but principal sans qu'on s'en aperçoive =&gt; dés-alignement entre pensée consciente et motif réels =&gt; Aïe !
 
-
-
 Better question than "What's the meaning of life ?": whatever simple sentence proposed, I cannot imagine my mind not questionning it \(and having pleasure in rebelling\) thus expressing a desire of liberation from a given meaning =&gt; "What is the meaning of the meaning of life ?". I can't imagine any definitive answer on such a topic not to be mind blowing. And when you have a look at the best movies out there, I find that what they do the best is firing infinite possibilities \(more questions than answers\) in your mind. Somehow I can't help but see in popular movies and video games \(or children playing\), a small scale re-play of what is the core creativity of the universe. Like clues or puns.
-
-
-
-
 
 dans la discussion avec soi ou les autres: toujours utile et enrichissant de déployer sa pensée à "voix haute" sans honte \(et en se laissant même la possibilité d'exprimer ses réticences à surpasser sa honte\), sans chercher à cacher les pistes mal dégrossies / moins séduisantes / contradictoires. Bref tout déployer comme un plan avant l'attaque, jouer cartes sur tables.
 
@@ -197,15 +183,13 @@ Having fun makes it easy to get seriously excited \("An app where your mother cr
 Nous bâtirons un rêve inespéré, une simplicité d'abondance et de beauté insoupçonnée sur les ruines d'une croyance aveugle dans une fuite en avant technocrade, fébrile et sourde aux désirs profonds. Au triste et lamentable projet de détruire la terre pour se réfugier en des lieux bien plus hostiles encore \(en fait uniquement motivé par le désir de briller\) nous puiserons nos ressources dans leurs déchets et leur conneries, nous serons les recycleurs des futurs de merde. Les limitations que l'on s'impose ne font pas de nous des hommes de petite ambition, elles font des nous des hommes dune détermination effrayante.
 
 I'd like to age in something like a badass transsexual grandpa eventually. You know, **no shit, low appetite,  
-big laugh, bigmouth, looking after of the offspring**. Having been satisfied an all levels, I now take pleasure in nurturing lifes, Life, what may live ...
+big laugh, big mouth, looking after of the offspring**. Having been satisfied an all levels, I now take pleasure in nurturing lifes, Life, what may live ...
 
 Vous vous ennuyez, les gens! L’actif en vous, le vif, a perdu ses adversaires, se morfond, n’a, pour ses conquêtes, plus d’espace, plus de front où aller tremper le métal de ses os ! Plus de quoi s’user, épuiser ses forces, hein? Ah si : dans les petits plaisirs : les capsules, les stimulations artificielles, la virtue, le jeu, les images… **Les gens ne sont pas morbides : ils veulent juste de l’intensité**
 
 **désintéressement passioné ! globalement les oxymores ça marche bien**. ça capture le besoin de mouvement. `Désintéressement passionné et autres définitions par oxymore: capture du mouvement et des polarités du mental`
 
 `for a life full of meaning, you don't follow your passions, your passions follow you` \(contexte: faire ce qui nous attire, là où on réussit, la psssion suivra\)
-
-
 
 Ma définition de la spiritualité: le vertige de se dire "Qu'est-ce que je fais là ? WTF is I BTW ???"
 
@@ -218,7 +202,7 @@ Dans ma spiritualité, c'est l'inverse de ce qui est recherché d'habitude: je c
 Vouloir se connecter à une partie de soi qui serait loin est un non sens source de souffrance, d'incompréhension, d'illusion, de doutes. Par définition MOI m'est accessible. Plus je dépollue t mieux / davantage je me vois. Il faut que je me dépollue de l'univers.  
 Une fois libéré, en extase, je peux digérer, ralentir, choisir ce qui rentre ou pas dans mon corps. J'analyse les sons et je me laisse vibrer par ceux qui résonent en moi. Je commence doucement et je peux comme ça devenir une musique à moi seul.
 
-**De la tendresse pour moi et les autr**
+**De la tendresse pour moi et les autre**
 
 Ce qui a une consistance, ce sont le plaisir et la douleur. Derrière une morale rigoriste se cache une recherche de plaisir voilée, qui ne dit pas son nom. Les désirs de plaisir n'ont pas de raison d'être réalistes
 
@@ -228,7 +212,7 @@ Mon libre arbitre le plus profond: me concentrer, faire la lumière sur tel ou t
 
 Le rire peut englober la gravité, la joie illuminer la tristesse
 
-Quand tu doutes de l'attitude à adopter, prends celle qui sublime, permet l'autre
+Quand tu doutes de l'attitude à adopter, laisse les rênes à celle qui accepte l'autre
 
 En disant ça je me rends compte que l'attitude à adopter c'est ce qu'on cherche tous. Quand on parle de sens de la vie, c'est ça qu'on cherche vraiment. On s'en tout de si y'a un sens à la vie à part si on arrive pas à adopter l'attitude qu'on voudrait
 
@@ -240,31 +224,14 @@ Ceux qui prônent des voies vers la joie, le bonheur, parlent souvent depuis une
 
 Je crois en tout pour m'illusionner le moins possible. Ne pas croire ou croire à des degrés établis c'est se reposer davantage sur la croyance. Il n'empêche que mon corps estime l'adéquation, la fiabilité des croyances, dés qu'une décision vitale est nécessaire.
 
-
-
 Exciting narratives, those "Nolan" like ones where crazy connections and cliffhangers uproot you, project you in a new form of life no one has ever explored.  
 Which seems to be what life is about. To keep balance, I should multiply those narratives, keep them at once and alive in my head.
 
-Fondamentalement, je tourne souvent autoir de la question "which rules should I follow ?". En fait "What rules do I want ?" est plus facile et plus intéressante
-
-
-
-mode de pensée plus que religion: auto-fuck  
-le matin devant le miroir: fuck à soi même et se sourir avec compassion  
-avec les autres: les autres sont une chance, se donner et donner les moyens de pouvoir exprimer le meilleur, le + authentique, le + innocent de soi. On est tout à fait conscients que pour que ces aspects existent c'est que leur dual est aussi là: égoïsme, sabotage, illusions. Ils sont là pour nous faire la courte échelle.  
+Les autres sont une chance, se donner et donner les moyens de pouvoir exprimer le meilleur, le + authentique, le + innocent de soi. On est tout à fait conscients que pour que ces aspects existent c'est que leur dual est aussi là: égoïsme, sabotage, illusions. Ils sont là pour nous faire la courte échelle.  
 la dualité, les parts obscures de nos désirs, c'est ce qui créé le mouvement. Comme les électrolytes d'une batterie.  
 Comme le "mauvais cholésterol": pas mauvais en soi, il charrie simplement ce qui tue.
 
-
-
-# My very own indie sprirituality
-
-Conscience is the crisis room of issues of all sorts: existential questions, immediate survival
-
 I \(and I assume we\) usually refer to "truth" when talking about a soothing concept that reconciliates all consciousness available strates of ourselves.
-
-We get our idea of death from the experience of birth: from void to consciousness we extrapolate consciousness to void that  
-could be death
 
 Humour, Amour pour ce qui est à l'intérieur de soi et résone chez les autres  
 Maïeutique de ce qui est en soi: créer de la joie ou s'ouvrir à une souffrance  
@@ -308,20 +275,9 @@ Se rendre compte que la vie en état d'éveil ressemble à un rêve dont on peut
 indéfiniment: il y a toujours un observateur qui observe ou du moins je n'ai jamais vu le bout\)  
 et s'interroger sur l'état de réveil ultime qui serait lié.
 
-Sur la fragmentation, l'opposé d'un "éveil spirituel":
 
-> Meditation is the understanding of the totality of life in which every form of fragmentation has ceased.
 
-_Krishnamuti_
 
-What's fondamentally "broken" in human experience: we are not our bodies, we happen to have some knowledge about it as it pops into our consciousness.  
- But SOOOO much happens without us noticing, even to the extent of not noticing a split brain !
-
-Est-ce que la conscience naît des contradictions \(~ besoin de décohérence quantique\) ? En tout cas ça a l'air  
-d'être le lieu privilégie pour leur expression: plaisir / douleur, pensés compulsives / néfastes, etc ...
-
-Attitude spirituelle assez agréable \(mais juste ?\): se voir comme l'observateur des dysfonctions.  
-"Je" a pour but de voir ce qui ne va pas \(== cut the crap en fait, de façon humoristique c'est mieux\)
 
 Tout ce que j'ai ressenti ou entrevu comme possibilité de vie, de vérité a jusqu'à preuve du contraire toute raison  
 de l'être. j'ai la possibilité de faire vivre des perspectives et des émotions multiples, non fragmentées,  
@@ -333,6 +289,4 @@ sachant que pour un même souvenir des émotions complètement différentes co-e
 le présent ?\), qu'une même émotion se dévoile par l'attention. Réagir en se détachant de ses émotions c'est  
 encore se fragmenter. L'humour comme décalage apaisant avec les images que l'on s'impose. Invite à la méditation:  
 dé-fragmentation de la pensée. activité spirituelle.
-
-
 
