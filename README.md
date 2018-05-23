@@ -14,11 +14,7 @@ Il y a toujours une autre façon de faire, ne serait-ce que celle qui consiste �
 
 rage & joie & tristesse FTW \(transmuter en émotions basique c'est sain\)
 
-"Je" me fais tabasser par les forces qui s'affrontent en moi :D. Se détendre c'est laisser le combat se dérouler.
-
 "Thank you so much for what you give me. I owe you gratefulness and radical honesty."
-
-Auto validation et Auto dérision
 
 Bénéfique pour moi et les autres: quelles sont nos intentions respectives ? En particulier celles qui sont rampantes. Ex: espérer la séduction amoureuse en externalité positive à l'introspection et au partage de ses résultats. Ca peut parfois devenir le but principal sans qu'on s'en aperçoive =&gt; dés-alignement entre pensée consciente et motif réels =&gt; Aïe !
 
@@ -274,10 +270,6 @@ nous a créé dans un but bien différent, est-ce qu'il ne faut pas du coup lui 
 Se rendre compte que la vie en état d'éveil ressemble à un rêve dont on peut s'éveiller \(et il semble,  
 indéfiniment: il y a toujours un observateur qui observe ou du moins je n'ai jamais vu le bout\)  
 et s'interroger sur l'état de réveil ultime qui serait lié.
-
-
-
-
 
 Tout ce que j'ai ressenti ou entrevu comme possibilité de vie, de vérité a jusqu'à preuve du contraire toute raison  
 de l'être. j'ai la possibilité de faire vivre des perspectives et des émotions multiples, non fragmentées,  
