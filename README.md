@@ -87,8 +87,6 @@ Bon management: identification des obsessions pour sublimation et orchestration 
 
 Idéalement dans un boulot on peut dire "Cet aspect me fait chier, je préfère ne pas faire ça / comme ça. Je vais plutôt faire ça / comme ça. Ce n'est pas le plus efficace toutes choses égales par ailleurs, mais le **supplément d'âme** que j'aurais à être dans une approche kiffante pour moi sera bénéfique pour la boîte et pour moi !". C'est la même chose que, de façon plus générale, quand on ose exprimer son désaccord sans avoir peur de représailles. C'est pas toujours possible mais c'est d'importance vitale de pouvoir le faire autant que possible \(image en tête: un connard dans la rue qui fait exprès de provoquer les gens. Besoin de le recadrer VS inutilité de la mise en danger\).
 
-**A professional is an amateur who never quit.** \(someone else\)
-
 Mes particularités:
 
 * Je suis dans la fermentation / décantation, l'observation, le retournement / détournement
